@@ -1,0 +1,197 @@
+{
+  "main": {
+    "id": "643c780f0228eb9f",
+    "type": "split",
+    "children": [
+      {
+        "id": "36786828d8773239",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "768c72cb9eeea590",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Trading Learn/📌 Học về thị trường Crypto.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "📌 Học về thị trường Crypto"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "eae3165d292d4997",
+    "type": "split",
+    "children": [
+      {
+        "id": "26fe099b96fb0244",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "8d1f0f79cbad03bd",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical",
+                "autoReveal": false
+              },
+              "icon": "lucide-folder-closed",
+              "title": "Files"
+            }
+          },
+          {
+            "id": "efb752cfbfc2b0e2",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              },
+              "icon": "lucide-search",
+              "title": "Search"
+            }
+          },
+          {
+            "id": "1c85e8f5c536e5c6",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {},
+              "icon": "lucide-bookmark",
+              "title": "Bookmarks"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "right": {
+    "id": "233b1a12489e3ee5",
+    "type": "split",
+    "children": [
+      {
+        "id": "7e4d517c3becb7be",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "e2c07db03411ba1d",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "Trading Learn/📌 Học về thị trường Crypto.md",
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-coming-in",
+              "title": "Backlinks for 📌 Học về thị trường Crypto"
+            }
+          },
+          {
+            "id": "0c3365a0e71177b8",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "file": "Welcome.md",
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-going-out",
+              "title": "Outgoing links from Welcome"
+            }
+          },
+          {
+            "id": "8cdafd37a77fdc5b",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true,
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-tags",
+              "title": "Tags"
+            }
+          },
+          {
+            "id": "b9a87b00da0239c5",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "Welcome.md",
+                "followCursor": false,
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-list",
+              "title": "Outline of Welcome"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false,
+      "github-sync:Sync with Remote": false
+    }
+  },
+  "active": "768c72cb9eeea590",
+  "lastOpenFiles": [
+    "Trading Learn/📌 Học về thị trường Crypto.md",
+    "Untitled.canvas",
+    "Trading Learn/📌 LỘ TRÌNH HỌC FOREX.md",
+    "Trading Learn/📌 Phân tích Kinh Tế & Vĩ Mô.md",
+    "Trading Learn/Những thứ cần hiểu khi mới bước chân vào thị trường Blockchain.md",
+    "Trading Learn/Những lưu ý khi mới học trading.md",
+    "Bất động sản/Những vấn đề xoay quanh sản phẩm đất nền.md",
+    "Lưu trữ cá nhân/Nhận thức cá nhân.md",
+    "Lưu trữ cá nhân/Mẹ ơi, cảm ơn mẹ vì mẹ đã là mẹ của con….md",
+    "Lưu trữ cá nhân/HÀNH TRÌNH KHỞI NGHIỆP- Mệt mà vui.md",
+    "Lưu trữ cá nhân/Write a paragraph in English about a sad love story.md",
+    "Bất động sản/Tính ưu tiên của vị trí trong dự án.md",
+    "Lưu trữ cá nhân/Xem bói.md",
+    "Untitled",
+    "Trading Learn",
+    "Lưu trữ cá nhân/CON GÁI, XIN ĐỪNG KẾT HÔN VỚI NGƯỜI 'NGHÈO'.md",
+    "Lưu trữ cá nhân",
+    "Bất động sản",
+    "test.md",
+    "readme.md",
+    "Welcome.md",
+    "git"
+  ]
+}
