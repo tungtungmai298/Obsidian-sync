@@ -1,3 +1,0 @@
-Khả năng khiến người khác bật cười bằng cách tự giễu cợt bản thân là điều không thể nếu không có sự quan tâm chân thành.  
-  
-Thật buồn cười khi nghĩ về nó, đúng không? Có rất nhiều lời kêu gọi trừng phạt tội phạm, nhưng cuối cùng, chính những kẻ tội phạm lại nuôi sống cả xã hội. Họ chia nhỏ số tiền khổng lồ mà họ không thể nuốt trọn, làm cho nó dễ tiêu hóa hơn. Họ giống như những vi sinh vật của xã hội. Không có vi sinh vật, sự sống sẽ chết dần
