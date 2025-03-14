@@ -34,9 +34,37 @@
               "icon": "lucide-file",
               "title": "Test1"
             }
+          },
+          {
+            "id": "8359db5557897622",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "1.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "1"
+            }
+          },
+          {
+            "id": "14b722f975f00fc6",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "2.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "2"
+            }
           }
         ],
-        "currentTab": 1
+        "currentTab": 3
       }
     ],
     "direction": "vertical"
@@ -180,14 +208,18 @@
       "canvas:Create new canvas": false,
       "daily-notes:Open today's daily note": false,
       "templates:Insert template": false,
-      "command-palette:Open command palette": false,
-      "github-sync:Sync with Remote": false
+      "command-palette:Open command palette": false
     }
   },
-  "active": "3905085643ad15dd",
+  "active": "14b722f975f00fc6",
   "lastOpenFiles": [
-    "Trading Learn/Những thứ cần hiểu khi mới bước chân vào thị trường Blockchain.md",
+    "Test1 - Copy.md",
+    "2 - Copy.md",
+    "1 - Copy.md",
+    "1.md",
+    "2.md",
     "Test1.md",
+    "Trading Learn/Những thứ cần hiểu khi mới bước chân vào thị trường Blockchain.md",
     "Trading Learn/📌 Học về thị trường Crypto.md",
     "Obsidian-sync/Trading Learn/📌 Phân tích Kinh Tế & Vĩ Mô.md",
     "Obsidian-sync/Trading Learn/📌 LỘ TRÌNH HỌC FOREX.md",
@@ -212,11 +244,6 @@
     "Trading Learn/Những lưu ý khi mới học trading.md",
     "Bất động sản/Những vấn đề xoay quanh sản phẩm đất nền.md",
     "Lưu trữ cá nhân/Nhận thức cá nhân.md",
-    "Lưu trữ cá nhân/Mẹ ơi, cảm ơn mẹ vì mẹ đã là mẹ của con….md",
-    "Lưu trữ cá nhân/HÀNH TRÌNH KHỞI NGHIỆP- Mệt mà vui.md",
-    "Lưu trữ cá nhân/Write a paragraph in English about a sad love story.md",
-    "Bất động sản/Tính ưu tiên của vị trí trong dự án.md",
-    "Lưu trữ cá nhân/Xem bói.md",
     "Untitled",
     "Trading Learn",
     "Lưu trữ cá nhân",
