@@ -1285,5 +1285,13 @@ Bạn có thể làm điều đó chỉ bằng cách thở. Thở thư giãn nó
 
 Tôi không nói rằng bạn có thể đánh bại bất kỳ bệnh nào bạn chỉ vì bạn đã kích hoạt não sau của bạn. Nhưng bạn đang cống hiến hầu hết năng lượng thường cần thiết để chăm sóc về môi trường bên ngoài cho hệ thống miễn dịch.
 
+Tôi đánh giá cao việc lắng nghe podcast của Tim Ferriss với Wim Hof. Anh ấy là một phép màu đi bộ. Biệt danh của Wim là Người băng. Anh ấy giữ kỷ lục thế giới cho thời gian dài nhất dành trong một bồn tắm đá và bơi trong nước lạnh đóng băng. Tôi đã rất được truyền cảm hứng bởi anh ấy, không chỉ bởi vì anh ấy có khả năng thực hiện những kỳ công thể chất siêu phàm, mà bởi vì anh ấy làm điều đó trong khi vô cùng tốt bụng và hạnh phúc - điều không dễ thực hiện.
 
+Anh ấy ủng hộ phơi nhiễm lạnh, bởi vì anh ấy tin rằng mọi người quá tách biệt khỏi môi trường tự nhiên của họ. Chúng ta liên tục mặc quần áo, được cho ăn và ấm áp. Cơ thể của chúng ta đã mất liên lạc với cái lạnh. Cái lạnh là quan trọng bởi vì nó có thể kích hoạt hệ thống miễn dịch.
+
+Vì vậy, anh ấy ủng hộ việc tắm nước đá lâu. Đến từ tiểu lục địa Ấn Độ, tôi kiên quyết chống lại ý tưởng tắm nước đá. Nhưng Wim đã truyền cảm hứng cho tôi để thử tắm vòi sen lạnh. Và tôi đã làm như vậy bằng cách sử dụng phương pháp thở Wim Hof. Nó liên quan đến việc siêu thông gió để có thêm oxy vào máu của bạn, điều này làm tăng nhiệt độ cốt lõi của bạn. Sau đó, bạn có thể đi vào vòi sen.
+
+Vài vòi sen lạnh đầu tiên đã hài hước bởi vì tôi từ từ làm dịu bản thân, nhăn nhó toàn bộ quãng đường. Tôi đã bắt đầu khoảng bốn hoặc năm tháng trước. Bây giờ, tôi bật vòi sen ở hết cỡ và sau đó tôi bước vào ngay. Tôi không cho phép bản thân bất kỳ thời gian nào để do dự. Ngay sau khi tôi nghe thấy giọng nói trong đầu tôi nói với tôi nó sẽ lạnh như thế nào, tôi biết tôi phải bước vào.
+
+Tôi đã học được một bài học rất quan trọng từ điều này: hầu hết những đau khổ của chúng ta đến từ việc tránh. Hầu hết những đau khổ từ một vòi sen lạnh là việc đi vào bằng ngón chân của bạn. Một khi bạn ở trong, bạn ở trong. Nó không đau khổ. Nó chỉ là lạnh. Cơ thể của bạn nói rằng nó là lạnh khác với tâm trí của bạn nói rằng nó là lạnh. Thừa nhận cơ thể của bạn nói rằng nó là lạnh. Hãy nhìn vào nó. Đối phó với nó. Chấp nhận nó, nhưng đừng
 
