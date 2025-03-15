@@ -1216,4 +1216,4 @@ Tôi nghĩ rằng sự tác động lẫn nhau giữa đường và chất béo 
 
 Trong tự nhiên, rất hiếm khi tìm thấy carbs và chất béo với nhau. Trong tự nhiên, tôi tìm thấy carbs và chất béo với nhau trong dừa, trong xoài, có lẽ trong chuối, nhưng nó về cơ bản là trái cây nhiệt đới. Sự kết hợp của đường và chất béo với nhau là thực sự chết người. Bạn phải cẩn thận về điều đó trong chế độ ăn uống của bạn.
 
-Tôi không phải là một chuyên gia, và vấn đề là chế độ ăn uống và dinh dưỡng giống như chính trị: mọi người đều nghĩ rằng họ là một chuyên gia. Bản sắc của họ được gói gọn trong đó bởi vì những gì họ đã được ăn hoặc những gì họ
+Tôi không phải là một chuyên gia, và vấn đề là chế độ ăn uống và dinh dưỡng giống như chính trị: mọi người đều nghĩ rằng họ là một chuyên gia. Bản sắc của họ được gói gọn trong đó bởi vì những gì họ đã được ăn hoặc những gì họ 
