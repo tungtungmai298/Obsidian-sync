@@ -848,3 +848,4 @@ Tiền không phải là gốc rễ của mọi điều ác; không có gì xấ
 Ham muốn tiền bạc là xấu cho chúng ta bởi vì nó là một hố không đáy. Nó sẽ luôn chiếm tâm trí của bạn. Nếu bạn yêu tiền bạc, và bạn làm cho nó, không bao giờ có đủ. Không bao giờ có đủ bởi vì ham muốn được bật và không tắt ở một số số. Nó là một sai lầm khi nghĩ rằng nó tắt ở một số số.
 
 Hình phạt cho tình yêu tiền bạc được giao cùng lúc với tiền bạc. Khi bạn kiếm tiền, bạn chỉ muốn nhiều hơn, và bạn trở nên hoang tưởng và sợ hãi mất những gì bạn có. Không có bữa trưa miễn phí.
+
