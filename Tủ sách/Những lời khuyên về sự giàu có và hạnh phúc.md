@@ -1546,9 +1546,7 @@ Hai là chọn và làm việc dựa trên các giá trị. Bỏ những hoạt 
 
 ---
 
-**CHƯƠNG 25: TRIẾT LÝ**
-
-**Ý NGHĨA CỦA CUỘC SỐNG**
+**CHƯƠNG 25: TRIẾT LÝ** **Ý NGHĨA CỦA CUỘC SỐNG**
 
 Một câu hỏi lớn thực sự không giới hạn: ý nghĩa và mục đích của cuộc sống là gì?
 
