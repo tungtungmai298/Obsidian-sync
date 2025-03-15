@@ -774,3 +774,4 @@ Bạn sẽ thực hiện một hoặc hai bước nào để bao quanh bản th�
 Tìm ra những gì bạn giỏi và bắt đầu giúp đỡ những người khác với nó. Cho đi. Trả lại nó. Nghiệp hoạt động bởi vì mọi người là nhất quán. Trên một khung thời gian đủ dài, bạn sẽ thu hút những gì bạn dự án. Nhưng đừng đo lường - sự kiên nhẫn của bạn sẽ hết nếu bạn đếm. [7]
 
 Một ông chủ cũ đã từng cảnh báo: "Bạn sẽ không bao giờ giàu có vì bạn rõ ràng là thông minh, và ai đó sẽ luôn đề nghị bạn một công việc mà chỉ đủ tốt."
+
