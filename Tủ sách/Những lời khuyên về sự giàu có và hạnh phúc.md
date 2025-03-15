@@ -1317,5 +1317,19 @@ Bạn cũng có thể thực hiện thiền siêu việt, đó là nơi bạn đ
 
 Khi tâm trí của bạn im lặng, bạn ngừng lấy mọi thứ xung quanh bạn làm điều hiển nhiên. Bạn bắt đầu nhận thấy các chi tiết. Bạn nghĩ, "Wow, tôi sống ở một nơi xinh đẹp như vậy. Thật tuyệt vời mà tôi có quần áo, và tôi có thể đến Starbucks và mua một ly cà phê bất cứ lúc nào. Hãy nhìn vào những người này - mỗi người đều có một cuộc sống hoàn toàn hợp lệ và đầy đủ diễn ra trong đầu của riêng họ."
 
-Nó làm bật chúng ta ra khỏi câu chuyện chúng ta liên tục kể cho chính mình. Nếu bạn ngừng nói chuyện với bản thân mình trong thậm chí mười phút, nếu bạn ngừng 
+Nó làm bật chúng ta ra khỏi câu chuyện chúng ta liên tục kể cho chính mình. Nếu bạn ngừng nói chuyện với bản thân mình trong thậm chí mười phút, nếu bạn ngừng ám ảnh về câu chuyện riêng của bạn, bạn sẽ nhận ra chúng ta thực sự ở khá xa
+
+lên hệ thống phân cấp nhu cầu của Maslow, và cuộc sống là khá tốt. [6]
+
+Life-hack: Khi ở trên giường, hãy thiền. Hoặc bạn sẽ có một thiền sâu hoặc ngủ thiếp đi. Chiến thắng bằng cả hai cách.
+
+Một phương pháp khác tôi đã học được là chỉ cần ngồi đó và bạn nhắm mắt trong ít nhất một giờ mỗi ngày. Bạn đầu hàng bất cứ điều gì xảy ra — đừng nỗ lực gì. Bạn không nỗ lực cho một cái gì đó, và bạn không nỗ lực chống lại bất cứ điều gì. Nếu có những suy nghĩ chạy qua tâm trí của bạn, bạn hãy để những suy nghĩ chạy.
+
+Đối với toàn bộ cuộc sống của bạn, mọi thứ đã xảy ra với bạn. Một số tốt, một số xấu, hầu hết trong số đó bạn đã xử lý và giải tán, nhưng một vài bị mắc kẹt với bạn. Theo thời gian, ngày càng có nhiều hơn bị mắc kẹt với bạn, và chúng gần như trở thành như thế này những con hàu bám vào bạn.
+
+Bạn mất cảm giác kỳ diệu thời thơ ấu của bạn và có mặt và hạnh phúc. Bạn mất hạnh phúc bên trong của bạn bởi vì bạn đã xây dựng nhân cách này của nỗi đau chưa được giải quyết, lỗi, nỗi sợ hãi và những ham muốn mà glommed vào bạn như một loạt các con hàu.
+
+Làm thế nào để bạn có được những con hàu đó tắt bạn? Những gì xảy ra trong thiền là bạn đang ngồi đó và không chống lại tâm trí của bạn. Những điều này sẽ bắt đầu sủi bọt lên. Nó giống như một hộp thư đến khổng lồ của các email không được trả lời, quay trở lại tuổi thơ của bạn. Chúng sẽ đi ra từng cái một, và bạn sẽ bị buộc phải đối phó với chúng.
+
+Bạn sẽ bị buộc phải giải quyết chúng. Giải quyết chúng không cần
 
