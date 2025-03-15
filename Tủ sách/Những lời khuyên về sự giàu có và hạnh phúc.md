@@ -587,3 +587,5 @@ Bạn có thể thấy điều này bằng cách tìm kiếm những người gi
 Nó quy mô rất, rất tốt. Nếu bạn trở nên giỏi quản lý vốn, bạn có thể quản lý ngày càng nhiều vốn dễ dàng hơn nhiều so với bạn có thể quản lý ngày càng nhiều người. [78]
 
 Hình thức đòn bẩy cuối cùng là hoàn toàn mới — hình thức dân chủ nhất. Đó là: "các sản phẩm không có chi phí sao chép biên."
+
+
