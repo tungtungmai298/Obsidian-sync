@@ -953,4 +953,50 @@ VÀ MỘT NƠI ĐỂ ĐỨNG,
 
 VÀ TÔI SẼ DI CHUYỂN TRÁI ĐẤT.
 
-Một điều tôi phát hiện ra sau này trong cuộc sống là nói chung (ít nhất là trong kinh doanh công nghệ ở Thung lũng Silicon), những người giỏi có kết quả tuyệt vời. Bạn chỉ cần phải kiên nhẫn. Mỗi người tôi đã gặp vào đầu sự nghiệp của tôi hai mươi năm trước, nơi tôi nhìn họ và nói, "Wow, anh chàng hoặc cô gái đó siêu có khả năng - rất thông minh và tận tâm"... tất cả trong số họ, gần như không có ngoại lệ,
+Một điều tôi phát hiện ra sau này trong cuộc sống là nói chung (ít nhất là trong kinh doanh công nghệ ở Thung lũng Silicon), những người giỏi có kết quả tuyệt vời. Bạn chỉ cần phải kiên nhẫn. Mỗi người tôi đã gặp vào đầu sự nghiệp của tôi hai mươi năm trước, nơi tôi nhìn họ và nói, "Wow, anh chàng hoặc cô gái đó siêu có khả năng - rất thông minh và tận tâm"... tất cả trong số họ, gần như không có ngoại lệ, đã trở nên cực kỳ thành công. Bạn chỉ cần phải cho họ một khung thời gian đủ dài. Nó không bao giờ xảy ra trong khung thời gian bạn muốn, hoặc họ muốn, nhưng nó xảy ra. [4]
+
+Áp dụng kiến thức cụ thể với đòn bẩy và cuối cùng, bạn sẽ nhận được những gì bạn xứng đáng.
+
+Cần có thời gian—ngay cả khi bạn đã có tất cả những mảnh này tại chỗ, vẫn có một lượng thời gian không xác định bạn phải bỏ ra. Nếu bạn đang đếm, bạn sẽ hết kiên nhẫn trước khi thành công thực sự đến.
+
+Mọi người đều muốn làm giàu ngay lập tức, nhưng thế giới là một nơi hiệu quả; ngay lập tức không hoạt động. Bạn phải bỏ ra thời gian. Bạn phải bỏ ra những giờ, và vì vậy tôi nghĩ bạn phải đặt mình vào vị trí với kiến thức cụ thể, với trách nhiệm giải trình, với đòn bẩy, với bộ kỹ năng đích thực bạn có, để trở thành người giỏi nhất trên thế giới ở những gì bạn làm.
+
+Bạn phải tận hưởng nó và tiếp tục làm điều đó, tiếp tục làm điều đó, và tiếp tục làm điều đó. Đừng theo dõi, và đừng đếm bởi vì nếu bạn làm, bạn sẽ hết thời gian. [78]
+
+Lời khuyên tồi tệ phổ biến nhất tôi nghe là: "Bạn còn quá trẻ." Hầu hết lịch sử đã được xây dựng bởi những người trẻ tuổi. Họ chỉ nhận được tín dụng khi họ lớn hơn. Cách duy nhất để thực sự học một cái gì đó là bằng cách làm điều đó. Vâng, lắng nghe hướng dẫn. Nhưng đừng chờ đợi. [3]
+
+Mọi người là kỳ lạ nhất quán. Nghiệp chỉ là bạn, lặp lại các mô hình, đức tính và khuyết điểm của bạn cho đến khi bạn cuối cùng nhận được những gì bạn xứng đáng.
+
+Luôn luôn trả lại nó. Và đừng đếm.
+
+Điều này không phải để nói rằng nó dễ dàng. Nó không dễ dàng. Nó thực sự là khó khăn chết tiệt. Nó là điều khó khăn nhất bạn sẽ làm. Nhưng nó cũng bổ ích. Hãy nhìn vào những đứa trẻ được sinh ra giàu có — chúng không có ý nghĩa cho cuộc sống của chúng.
+
+Sơ yếu lý lịch thực sự của bạn chỉ là một danh mục tất cả những đau khổ của bạn. Nếu tôi yêu cầu bạn mô tả cuộc sống thực của bạn cho chính bạn, và bạn nhìn lại từ giường bệnh của bạn vào những điều thú vị bạn đã làm, tất cả sẽ xoay quanh những hy sinh bạn đã thực hiện, những điều khó khăn bạn đã làm.
+
+Tuy nhiên, bất cứ điều gì bạn được cho không quan trọng. Bạn có bốn chi, bộ não của bạn, đầu của bạn, da của bạn — tất cả đều được coi là đương nhiên. Bạn phải làm những điều khó khăn anyway để tạo ra ý nghĩa riêng của bạn trong cuộc sống. Kiếm tiền là một điều tốt để chọn. Hãy đấu tranh. Nó là khó khăn. Tôi sẽ không nói rằng nó dễ dàng. Nó thực sự khó khăn, nhưng các công cụ đều có sẵn. Nó là tất cả ngoài kia. [77]
+
+Tiền bạc mua cho bạn tự do trong thế giới vật chất. Nó sẽ không làm cho bạn hạnh phúc, nó sẽ không giải quyết các vấn đề sức khỏe của bạn, nó sẽ không làm cho gia đình của bạn tuyệt vời, nó sẽ không làm cho bạn khỏe mạnh, nó sẽ không làm cho bạn bình tĩnh. Nhưng nó sẽ giải quyết rất nhiều vấn đề bên ngoài. Đó là một bước hợp lý để đi trước và kiếm tiền. [10]
+
+Điều gì làm cho việc kiếm tiền sẽ làm là giải quyết các vấn đề tiền bạc của bạn. Nó sẽ loại bỏ một tập hợp những thứ có thể cản trở việc hạnh phúc, nhưng nó sẽ không làm cho bạn hạnh phúc. Tôi biết nhiều người rất giàu có người không hạnh phúc. Hầu hết thời gian, người bạn phải trở thành để kiếm tiền là một người lo lắng cao, căng thẳng cao, làm việc chăm chỉ, cạnh tranh. Khi bạn đã làm điều đó trong hai mươi, ba mươi, bốn mươi, năm mươi năm, và bạn đột nhiên kiếm tiền, bạn không thể tắt nó. Bạn đã đào tạo bản thân để trở thành một người lo lắng cao. Sau đó, bạn phải học cách hạnh phúc. [11]
+
+Hãy để tôi làm cho bạn giàu có trước. Tôi rất thực tế về nó bởi vì, bạn biết đấy, Đức Phật là một hoàng tử. Anh ấy đã bắt đầu thực sự giàu có, sau đó anh ấy đã đi ra ngoài trong rừng.
+
+Trong những ngày xưa cũ, nếu bạn muốn được bình yên bên trong, bạn sẽ trở thành một nhà sư. Bạn sẽ từ bỏ mọi thứ, từ bỏ tình dục, trẻ em, tiền bạc, chính trị, khoa học, công nghệ, mọi thứ và bạn sẽ đi ra ngoài trong rừng một mình. Bạn đã phải từ bỏ mọi thứ để được tự do bên trong.
+
+Ngày nay, với phát minh tuyệt vời này gọi là tiền, bạn có thể lưu trữ nó trong một tài khoản ngân hàng. Bạn có thể bạn làm việc thực sự chăm chỉ, làm những điều tuyệt vời cho xã hội, và xã hội sẽ cho bạn tiền cho những thứ nó muốn nhưng không biết làm thế nào để có được. Bạn có thể tiết kiệm tiền, bạn có thể sống một chút dưới phương tiện của bạn và bạn có thể tìm thấy một sự tự do nhất định.
+
+Điều đó sẽ cho bạn thời gian và năng lượng để theo đuổi sự bình yên và hạnh phúc bên trong của bạn. Tôi tin rằng giải pháp để làm cho mọi người hạnh phúc là cung cấp cho họ những gì họ muốn.
+
+Hãy làm cho họ tất cả giàu có.
+
+Hãy để họ tất cả phù hợp và khỏe mạnh.
+
+Sau đó, hãy để họ tất cả hạnh phúc. [77]
+
+Tuyệt vời có bao nhiêu người nhầm lẫn sự giàu có và trí tuệ.
+
+---
+
+**PHẦN II: HẠNH PHÚC**
+
+Ba điều quan trọng nhất trong cuộc sống là sự giàu có, sức khỏe và hạnh phúc. Chúng ta theo đuổi chúng theo thứ tự đó, nhưng tầm quan trọng của chúng là ngược lại.
