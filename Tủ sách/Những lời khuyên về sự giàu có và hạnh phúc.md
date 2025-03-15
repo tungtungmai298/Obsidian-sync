@@ -1293,5 +1293,5 @@ Vì vậy, anh ấy ủng hộ việc tắm nước đá lâu. Đến từ tiể
 
 Vài vòi sen lạnh đầu tiên đã hài hước bởi vì tôi từ từ làm dịu bản thân, nhăn nhó toàn bộ quãng đường. Tôi đã bắt đầu khoảng bốn hoặc năm tháng trước. Bây giờ, tôi bật vòi sen ở hết cỡ và sau đó tôi bước vào ngay. Tôi không cho phép bản thân bất kỳ thời gian nào để do dự. Ngay sau khi tôi nghe thấy giọng nói trong đầu tôi nói với tôi nó sẽ lạnh như thế nào, tôi biết tôi phải bước vào.
 
-Tôi đã học được một bài học rất quan trọng từ điều này: hầu hết những đau khổ của chúng ta đến từ việc tránh. Hầu hết những đau khổ từ một vòi sen lạnh là việc đi vào bằng ngón chân của bạn. Một khi bạn ở trong, bạn ở trong. Nó không đau khổ. Nó chỉ là lạnh. Cơ thể của bạn nói rằng nó là lạnh khác với tâm trí của bạn nói rằng nó là lạnh. Thừa nhận cơ thể của bạn nói rằng nó là lạnh. Hãy nhìn vào nó. Đối phó với nó. Chấp nhận nó, nhưng đừng
+Tôi đã học được một bài học rất quan trọng từ điều này: hầu hết những đau khổ của chúng ta đến từ việc tránh. Hầu hết những đau khổ từ một vòi sen lạnh là việc đi vào bằng ngón chân của bạn. Một khi bạn ở trong, bạn ở trong. Nó không đau khổ. Nó chỉ là lạnh. Cơ thể của bạn nói rằng nó là lạnh khác với tâm trí của bạn nói rằng nó là lạnh. Thừa nhận cơ thể của bạn nói rằng nó là lạnh. Hãy nhìn vào nó. Đối phó với nó. Chấp nhận nó, nhưng đừng 
 
