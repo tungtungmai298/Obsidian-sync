@@ -1331,5 +1331,15 @@ Bạn mất cảm giác kỳ diệu thời thơ ấu của bạn và có mặt v
 
 Làm thế nào để bạn có được những con hàu đó tắt bạn? Những gì xảy ra trong thiền là bạn đang ngồi đó và không chống lại tâm trí của bạn. Những điều này sẽ bắt đầu sủi bọt lên. Nó giống như một hộp thư đến khổng lồ của các email không được trả lời, quay trở lại tuổi thơ của bạn. Chúng sẽ đi ra từng cái một, và bạn sẽ bị buộc phải đối phó với chúng.
 
-Bạn sẽ bị buộc phải giải quyết chúng. Giải quyết chúng không cần 
+Bạn sẽ bị buộc phải giải quyết chúng. Giải quyết chúng không cần bất kỳ công việc—bạn chỉ quan sát chúng. Bây giờ bạn là một người trưởng thành với một số khoảng cách, thời gian và không gian từ các sự kiện trước đó, và bạn chỉ có thể giải quyết chúng. Bạn có thể khách quan hơn nhiều về cách bạn xem chúng.
+
+Theo thời gian, bạn sẽ giải quyết rất nhiều trong số những thứ chưa được giải quyết sâu sắc này trong tâm trí của bạn. Một khi chúng được giải quyết, sẽ có một ngày khi bạn ngồi xuống để thiền định, và bạn sẽ đạt đến một "hộp thư đến bằng không" tinh thần. Khi bạn mở "email" tinh thần của bạn và không có, đó là một cảm giác khá tuyệt vời.
+
+Đó là một trạng thái của niềm vui và phước lành và hòa bình. Một khi bạn có nó, bạn không muốn từ bỏ nó. Nếu bạn có thể nhận được một giờ miễn phí của phước lành mỗi buổi sáng chỉ bằng cách ngồi và nhắm mắt của bạn, điều đó có giá trị trọng lượng của nó trong vàng. Nó sẽ thay đổi cuộc sống của bạn.
+
+Tôi khuyên bạn nên thiền một giờ mỗi buổi sáng bởi vì bất cứ điều gì ít hơn không phải là đủ thời gian để thực sự đi sâu vào nó. Tôi sẽ khuyên bạn nên nếu bạn thực sự muốn thử thiền, hãy thử sáu mươi ngày một giờ một ngày, việc đầu tiên vào buổi sáng. Sau khoảng sáu mươi ngày, bạn sẽ mệt mỏi của việc lắng nghe tâm trí của riêng bạn. Bạn sẽ đã giải quyết rất nhiều vấn đề, hoặc bạn đã nghe chúng đủ để nhìn xuyên qua những nỗi sợ hãi và vấn đề đó.
+
+Thiền là không khó. Tất cả bạn phải làm là ngồi đó và không làm gì cả. Chỉ cần ngồi xuống. Nhắm mắt lại và nói, "Tôi chỉ sẽ cho bản thân một thời gian nghỉ ngơi trong một giờ. Đây là giờ của tôi ra khỏi cuộc sống. Đây là giờ tôi sẽ không làm bất cứ điều gì.
+
+"Nếu những suy nghĩ đến, những suy nghĩ đến. Tôi sẽ không chiến đấu với chúng.
 
