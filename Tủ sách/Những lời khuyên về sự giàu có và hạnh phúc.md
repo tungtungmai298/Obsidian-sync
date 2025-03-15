@@ -1148,4 +1148,38 @@ Một người hạnh phúc không phải là ai đó hạnh phúc mọi lúc.
 
 Tôi nghĩ sai lầm phổ biến nhất cho nhân loại là tin rằng bạn sẽ được làm cho hạnh phúc vì một số hoàn cảnh bên ngoài. Tôi biết điều đó không phải là bản gốc. Điều đó không phải là mới. Đó là trí tuệ Phật giáo cơ bản - tôi không nhận tín dụng cho nó. Tôi nghĩ tôi thực sự chỉ nhận ra nó ở một cấp độ cơ bản, bao gồm cả bản thân mình.
 
-Chúng tôi đã mua một chiếc xe mới. Bây giờ, tôi đang chờ đợi chiếc xe mới đến. Tất nhiên, mỗi đêm, tôi đều trên các diễn đàn đọc về chiếc xe. Tại sao? Đó là một đối tượng ngớ ngẩn. Đó là một chiếc xe ngớ ngẩn. Nó sẽ không thay đổi cuộc đời tôi nhiều hoặc tất cả. Tôi biết khoảnh khắc chiếc xe đến tôi sẽ không quan tâm về nó nữa. Vấn đề là, tôi nghiện ham muốn. Tôi nghiện ý tưởng về điều bên ngoài này mang lại
+Chúng tôi đã mua một chiếc xe mới. Bây giờ, tôi đang chờ đợi chiếc xe mới đến. Tất nhiên, mỗi đêm, tôi đều trên các diễn đàn đọc về chiếc xe. Tại sao? Đó là một đối tượng ngớ ngẩn. Đó là một chiếc xe ngớ ngẩn. Nó sẽ không thay đổi cuộc đời tôi nhiều hoặc tất cả. Tôi biết khoảnh khắc chiếc xe đến tôi sẽ không quan tâm về nó nữa. Vấn đề là, tôi nghiện ham muốn. Tôi nghiện ý tưởng về điều bên ngoài này mang lại cho tôi một số loại hạnh phúc và niềm vui, và điều này là hoàn toàn ảo tưởng.
+
+HAM MUỐN
+
+LÀ MỘT HỢP ĐỒNG
+
+MÀ BẠN LÀM
+
+VỚI CHÍNH BẠN
+
+ĐỂ KHÔNG HẠNH PHÚC
+
+CHO ĐẾN KHI BẠN NHẬN ĐƯỢC
+
+NHỮNG GÌ
+
+BẠN
+
+MUỐN.
+
+Nhìn bên ngoài bản thân cho bất cứ điều gì là ảo tưởng cơ bản. Không phải để nói rằng bạn không nên làm những điều bên ngoài. Bạn hoàn toàn nên. Bạn là một sinh vật sống. Có những thứ bạn làm. Bạn đảo ngược entropy cục bộ. Đó là lý do tại sao bạn ở đây.
+
+Bạn có nghĩa là để làm một cái gì đó. Bạn không chỉ có nghĩa là nằm đó trong cát và thiền định cả ngày. Bạn nên tự hiện thực hóa. Bạn nên làm những gì bạn có nghĩa là làm.
+
+Ý tưởng bạn sẽ thay đổi một cái gì đó trong thế giới bên ngoài và điều đó sẽ mang lại cho bạn sự bình yên, niềm vui vĩnh cửu và hạnh phúc bạn xứng đáng, là một ảo tưởng cơ bản mà tất cả chúng ta phải chịu đựng, bao gồm cả tôi. Sai lầm lặp đi lặp lại là nói, "Ồ, tôi sẽ hạnh phúc khi tôi có được điều đó", bất kể nó là gì. Đó là sai lầm cơ bản mà tất cả chúng ta mắc phải, 24/7, cả ngày dài. [4]
+
+Ảo tưởng cơ bản: Có một cái gì đó ngoài kia sẽ làm cho tôi hạnh phúc và trọn vẹn mãi mãi.
+
+Ham muốn là một hợp đồng bạn làm với chính mình để không hạnh phúc cho đến khi bạn nhận được những gì bạn muốn. Tôi không nghĩ hầu hết chúng ta nhận ra đó là gì. Tôi nghĩ rằng chúng ta đi về mong muốn mọi thứ cả ngày dài và sau đó tự hỏi tại sao chúng ta không hạnh phúc. Tôi thích giữ ý thức về nó, bởi vì sau đó tôi có thể chọn ham muốn của mình rất cẩn thận. Tôi cố gắng không có nhiều hơn một ham muốn lớn trong cuộc đời tôi tại bất kỳ thời điểm nào, và tôi cũng nhận ra nó là trục của những đau khổ của tôi. Tôi nhận ra khu vực nơi tôi đã chọn để không hạnh phúc. [5]
+
+Ham muốn là một hợp đồng bạn làm với chính mình để không hạnh phúc cho đến khi bạn nhận được những gì bạn muốn.
+
+---
+
+**PHẦN 19: THẬT THÀ CHO
