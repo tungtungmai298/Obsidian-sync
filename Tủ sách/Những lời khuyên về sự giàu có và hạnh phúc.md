@@ -646,6 +646,4 @@ Học cách bán, học cách xây dựng. Nếu bạn có thể làm cả hai, 
 
 Nhưng trong mọi ngành, có một định nghĩa về người xây dựng. Trong ngành công nghiệp công nghệ của chúng tôi, đó là CTO, đó là lập trình viên, đó là kỹ sư phần mềm hoặc kỹ sư phần cứng. Nhưng ngay cả trong ngành giặt ủi, nó có thể là người đang xây dựng dịch vụ giặt ủi, người đang làm cho các chuyến tàu chạy đúng giờ, người đang đảm bảo tất cả quần áo kết thúc ở đúng nơi vào đúng thời điểm, v.v.
 
-Phía bên kia của nó là bán hàng. Một lần nữa, bán hàng có một định nghĩa rất rộng. Bán hàng không nhất thiết chỉ có nghĩa là bán cho
-
-khách hàng cá nhân, nhưng nó có thể có nghĩa là tiếp thị, nó có thể có nghĩa là
+Phía bên kia của nó là bán hàng. Một lần nữa, bán hàng có một định nghĩa rất rộng. Bán hàng không nhất thiết chỉ có nghĩa là bán cho khách hàng cá nhân, nhưng nó có thể có nghĩa là tiếp thị, nó có thể có nghĩa là
