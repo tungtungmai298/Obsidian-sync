@@ -1317,5 +1317,5 @@ Bạn cũng có thể thực hiện thiền siêu việt, đó là nơi bạn đ
 
 Khi tâm trí của bạn im lặng, bạn ngừng lấy mọi thứ xung quanh bạn làm điều hiển nhiên. Bạn bắt đầu nhận thấy các chi tiết. Bạn nghĩ, "Wow, tôi sống ở một nơi xinh đẹp như vậy. Thật tuyệt vời mà tôi có quần áo, và tôi có thể đến Starbucks và mua một ly cà phê bất cứ lúc nào. Hãy nhìn vào những người này - mỗi người đều có một cuộc sống hoàn toàn hợp lệ và đầy đủ diễn ra trong đầu của riêng họ."
 
-Nó làm bật chúng ta ra khỏi câu chuyện chúng ta liên tục kể cho chính mình. Nếu bạn ngừng nói chuyện với bản thân mình trong thậm chí mười phút, nếu bạn ngừng
+Nó làm bật chúng ta ra khỏi câu chuyện chúng ta liên tục kể cho chính mình. Nếu bạn ngừng nói chuyện với bản thân mình trong thậm chí mười phút, nếu bạn ngừng 
 
