@@ -805,4 +805,46 @@ Sau đó, bạn chỉ mệt mỏi với các trò chơi. Tôi sẽ nói rằng t
 
 Tôi muốn ra khỏi băng chuyền khoái lạc. [1]
 
-Những gì bạn thực sự muốn là tự do. Bạn muốn tự do khỏi các vấn đề tiền bạc của bạn, phải không? Tôi nghĩ điều đó là ổn. Một khi bạn có thể giải quyết
+Những gì bạn thực sự muốn là tự do. Bạn muốn tự do khỏi các vấn đề tiền bạc của bạn, phải không? Tôi nghĩ điều đó là ổn. Một khi bạn có thể giải quyết các vấn đề tiền bạc của bạn, hoặc bằng cách hạ thấp lối sống của bạn hoặc bằng cách kiếm đủ tiền, bạn muốn nghỉ hưu. Không phải là nghỉ hưu ở tuổi sáu mươi lăm, ngồi trong một viện dưỡng lão thu thập một khoản tiền hưu trí - đó là một định nghĩa khác.
+
+Định nghĩa của bạn về nghỉ hưu là gì?
+
+Nghỉ hưu là khi bạn ngừng hy sinh ngày hôm nay cho một ngày mai tưởng tượng. Khi ngày hôm nay đã hoàn thành, tự nó, bạn đã nghỉ hưu.
+
+Làm thế nào để bạn đến đó?
+
+Chà, một cách là có quá nhiều tiền đã tiết kiệm mà thu nhập thụ động của bạn (mà không cần bạn nhấc ngón tay) trang trải tỷ lệ đốt tiền của bạn.
+
+Thứ hai là bạn chỉ cần giảm tỷ lệ đốt tiền của bạn xuống không - bạn trở thành một nhà sư.
+
+Thứ ba là bạn đang làm một cái gì đó bạn yêu thích. Bạn thích nó rất nhiều, nó không phải về tiền. Vì vậy, có nhiều cách để nghỉ hưu.
+
+Cách để thoát khỏi bẫy cạnh tranh là trở nên xác thực, để tìm ra điều bạn biết làm tốt hơn bất kỳ ai. Bạn biết làm điều đó tốt hơn bởi vì bạn yêu thích nó, và không ai có thể cạnh tranh với bạn. Nếu bạn thích làm điều đó, hãy xác thực và sau đó tìm ra cách ánh xạ điều đó đến những gì xã hội thực sự muốn. Áp dụng một số đòn bẩy và đặt tên của bạn vào đó. Bạn chấp nhận rủi ro, nhưng bạn đạt được những phần thưởng, có quyền sở hữu và vốn chủ sở hữu trong những gì bạn đang làm và chỉ cần tăng cường nó. [77]
+
+Động lực của bạn để kiếm tiền có giảm sau khi bạn trở nên độc lập về tài chính không?
+
+Có và không. Nó đã làm theo nghĩa sự tuyệt vọng đã biến mất.
+
+Nhưng nếu có bất cứ điều gì, tạo ra các doanh nghiệp và kiếm tiền bây giờ là nhiều hơn một "nghệ thuật." [74]
+
+Cho dù trong thương mại, khoa học, hay chính trị - lịch sử ghi nhớ các nghệ sĩ.
+
+Nghệ thuật là sự sáng tạo. Nghệ thuật là bất cứ điều gì được thực hiện vì lợi ích riêng của nó. Những gì là những thứ được thực hiện vì lợi ích riêng của chúng, và không có gì đằng sau chúng? Yêu một ai đó, tạo ra một cái gì đó, chơi. Đối với tôi, việc tạo ra các doanh nghiệp là chơi. Tôi tạo ra các doanh nghiệp bởi vì nó là niềm vui, bởi vì tôi đang trong sản phẩm. [77]
+
+Tôi có thể tạo ra một doanh nghiệp mới trong vòng ba tháng: gây quỹ, tập hợp một đội và khởi động nó. Nó là niềm vui cho tôi. Nó thực sự крутой để xem những gì tôi có thể đặt lại với nhau. Nó làm cho tiền gần như một tác dụng phụ. Tạo ra các doanh nghiệp là trò chơi tôi đã trở nên giỏi. Chỉ cần động lực của tôi đã chuyển từ việc có mục tiêu để trở nên nghệ thuật. Trớ trêu thay, tôi nghĩ rằng tôi giỏi hơn nhiều ở nó bây giờ. [74]
+
+Ngay cả khi tôi đầu tư, đó là bởi vì tôi thích những người liên quan, tôi thích đi chơi với họ, tôi học hỏi từ họ, tôi nghĩ rằng sản phẩm là thực sự крутой. Những ngày này, tôi sẽ bỏ qua những khoản đầu tư tuyệt vời vì tôi không thấy các sản phẩm thú vị.
+
+Đây không phải là những điều 100 phần trăm hoặc không có gì. Bạn có thể bắt đầu di chuyển ngày càng nhiều hơn về phía mục tiêu đó trong cuộc sống của bạn. Đó là một mục tiêu.
+
+Khi tôi còn trẻ hơn, tôi đã từng rất tuyệt vọng để kiếm tiền mà tôi sẽ làm bất cứ điều gì. Nếu bạn đã xuất hiện và nói, "Này, tôi có một doanh nghiệp vận chuyển nước thải, bạn có muốn tham gia vào điều đó không?" Tôi sẽ nói, "Tuyệt vời, tôi muốn kiếm tiền!" Cảm ơn Chúa không ai cho tôi cơ hội đó. Tôi rất vui vì tôi đã đi xuống con đường của công nghệ và khoa học, mà tôi thực sự thích. Tôi đã có được để kết hợp nghề nghiệp và nghề nghiệp của tôi.
+
+Tôi luôn luôn "làm việc". Nó trông giống như công việc đối với người khác, nhưng nó cảm thấy như chơi đối với tôi. Và đó là cách tôi biết không ai có thể cạnh tranh với tôi về nó. Bởi vì tôi chỉ đang chơi, trong mười sáu giờ một ngày. Nếu người khác muốn cạnh tranh với tôi, họ sẽ làm việc, và họ sẽ thua bởi vì họ sẽ không làm điều đó trong mười sáu giờ một ngày, bảy ngày một tuần. [77]
+
+Con số của bạn ở đâu bạn nghĩ rằng bạn đã an toàn về mặt tài chính?
+
+Tiền không phải là gốc rễ của mọi điều ác; không có gì xấu xa về nó. Nhưng ham muốn tiền bạc là xấu. Ham muốn tiền bạc không phải là xấu theo nghĩa xã hội. Nó không xấu theo nghĩa "bạn là một người xấu vì ham muốn tiền bạc." Nó xấu cho bạn.
+
+Ham muốn tiền bạc là xấu cho chúng ta bởi vì nó là một hố không đáy. Nó sẽ luôn chiếm tâm trí của bạn. Nếu bạn yêu tiền bạc, và bạn làm cho nó, không bao giờ có đủ. Không bao giờ có đủ bởi vì ham muốn được bật và không tắt ở một số số. Nó là một sai lầm khi nghĩ rằng nó tắt ở một số số.
+
+Hình phạt cho tình yêu tiền bạc được giao cùng lúc với tiền bạc. Khi bạn kiếm tiền, bạn chỉ muốn nhiều hơn, và bạn trở nên hoang tưởng và sợ hãi mất những gì bạn có. Không có bữa trưa miễn phí.
