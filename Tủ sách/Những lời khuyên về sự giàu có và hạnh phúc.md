@@ -1096,3 +1096,56 @@ Bạn có thể rất từ từ nhưng ổn định và có phương pháp cải
 **CHƯƠNG 17: HẠNH PHÚC LÀ MỘT SỰ LỰA CHỌN**
 
 Hạnh phúc, tình yêu và đam mê… không phải là những thứ bạn tìm thấy—chúng là những lựa chọn bạn thực hiện.
+
+Hạnh phúc là một sự lựa chọn bạn thực hiện và một kỹ năng bạn phát triển.
+
+Tâm trí cũng có thể uốn nắn như cơ thể. Chúng ta dành rất nhiều thời gian và nỗ lực cố gắng thay đổi thế giới bên ngoài, những người khác và cơ thể của chính chúng ta—trong khi chấp nhận bản thân theo cách chúng ta được lập trình trong tuổi trẻ của chúng ta.
+
+Chúng ta chấp nhận giọng nói trong đầu của chúng ta như là nguồn gốc của mọi sự thật. Nhưng tất cả nó có thể uốn nắn, và mỗi ngày là mới. Trí nhớ và bản sắc là gánh nặng từ quá khứ ngăn chúng ta sống tự do trong hiện tại. [3]
+
+**HẠNH PHÚC ĐÒI HỎI SỰ HIỆN DIỆN**
+
+Vào bất kỳ thời điểm nào, khi bạn đang đi bộ trên đường phố, một tỷ lệ phần trăm rất nhỏ của bộ não của bạn được tập trung vào hiện tại. Phần còn lại đang lên kế hoạch cho tương lai hoặc hối tiếc quá khứ. Điều này ngăn bạn có một trải nghiệm đáng kinh ngạc. Nó đang ngăn bạn nhìn thấy vẻ đẹp trong mọi thứ và cho việc biết ơn cho nơi bạn đang ở. Bạn có thể phá hủy κυριολεκτικά hạnh phúc của bạn nếu bạn dành tất cả thời gian của bạn sống trong ảo tưởng của tương lai. [4]
+
+Chúng ta khao khát những kinh nghiệm mà sẽ làm cho chúng ta hiện diện, nhưng những khao khát bản thân lấy chúng ta từ khoảnh khắc hiện tại.
+
+Tôi chỉ không tin vào bất cứ điều gì từ quá khứ của tôi. Bất cứ điều gì. Không có kỷ niệm. Không có hối tiếc. Không có người. Không có chuyến đi. Không có gì. Rất nhiều sự bất hạnh của chúng ta đến từ việc so sánh những điều từ quá khứ với hiện tại. [4]
+
+Dự đoán cho các tệ nạn của chúng ta kéo chúng ta vào tương lai. Loại bỏ các tệ nạn giúp bạn dễ dàng hơn để có mặt.
+
+Có một định nghĩa tuyệt vời tôi đã đọc: "Sự просветление là không gian giữa những suy nghĩ của bạn." Nó có nghĩa là sự просветление không phải là một cái gì đó bạn đạt được sau ba mươi năm ngồi trên một đỉnh núi. Đó là một cái gì đó bạn có thể đạt được khoảnh khắc này đến khoảnh khắc, và bạn có thể được просветлением đến một phần trăm nhất định mỗi ngày duy nhất. [5]
+
+Điều gì nếu cuộc sống này là thiên đường chúng ta đã được hứa và chúng ta chỉ đang lãng phí nó?
+
+**HẠNH PHÚC ĐÒI HỎI HÒA BÌNH**
+
+Có phải hạnh phúc và mục đích được kết nối với nhau không?
+
+Hạnh phúc là một từ quá tải, tôi thậm chí không chắc chắn những gì nó có nghĩa là. Đối với tôi những ngày này, hạnh phúc là nhiều hơn về hòa bình hơn là về niềm vui. Tôi không nghĩ hòa bình và mục đích đi cùng nhau.
+
+Nếu đó là mục đích bên trong của bạn, điều bạn muốn làm nhất, thì chắc chắn, bạn sẽ hạnh phúc khi làm điều đó. Nhưng một mục đích áp đặt bên ngoài, như "xã hội muốn tôi làm X," "Tôi là con trai đầu lòng của  
+con trai đầu lòng của cái này, vì vậy tôi nên làm Y," hoặc "Tôi có khoản nợ hoặc gánh nặng này tôi đã nhận," Tôi không nghĩ rằng nó sẽ làm cho bạn hạnh phúc.
+
+Tôi nghĩ rằng rất nhiều người trong chúng ta có cảm giác lo lắng lan tỏa mức thấp này. Nếu bạn chú ý đến tâm trí của bạn, đôi khi bạn chỉ đang chạy xung quanh làm điều của bạn và bạn không cảm thấy tuyệt vời, và bạn nhận thấy tâm trí của bạn đang luyên thuyên và luyên thuyên về
+
+một cái gì đó. Có lẽ bạn không thể ngồi yên… Có điều "tiếp theo" này nơi bạn đang ngồi ở một điểm suy nghĩ về nơi bạn nên đến tiếp theo.
+
+Nó luôn luôn là điều tiếp theo, sau đó điều tiếp theo, điều tiếp theo sau đó, sau đó điều tiếp theo sau đó tạo ra sự lo lắng lan tỏa này.
+
+Nó rõ ràng nhất nếu bạn từng chỉ ngồi xuống và cố gắng và không làm gì, không có gì. Ý tôi là không có gì, ý tôi là không đọc một cuốn sách, ý tôi là không nghe nhạc, ý tôi là κυριολεκτικά chỉ ngồi xuống và không làm gì. Bạn không thể làm điều đó, bởi vì có sự lo lắng luôn cố gắng để làm cho bạn đứng dậy và đi, đứng dậy và đi, đứng dậy và đi. Tôi nghĩ rằng điều quan trọng là chỉ nhận thức được sự lo lắng đang làm cho bạn không hạnh phúc. Sự lo lắng chỉ là một loạt các suy nghĩ đang chạy.
+
+Làm thế nào để tôi chống lại sự lo lắng: Tôi không cố gắng và chiến đấu với nó, tôi chỉ nhận thấy tôi lo lắng vì tất cả những suy nghĩ này. Tôi cố gắng để tìm ra, "Tôi có thà có suy nghĩ này ngay bây giờ, hay tôi thà có hòa bình của tôi?" Bởi vì miễn là tôi có những suy nghĩ của tôi, tôi không thể có hòa bình của tôi.
+
+Bạn sẽ nhận thấy khi tôi nói hạnh phúc, tôi có nghĩa là hòa bình. Khi rất nhiều người nói hạnh phúc, họ có nghĩa là niềm vui hoặc hạnh phúc, nhưng tôi sẽ lấy hòa bình. [2]
+
+Một người hạnh phúc không phải là ai đó hạnh phúc mọi lúc.
+
+Đó là ai đó giải thích các sự kiện một cách dễ dàng theo một cách mà họ không mất hòa bình bẩm sinh của họ.
+
+---
+
+**CHƯƠNG 18: MỌI HAM MUỐN ĐỀU LÀ MỘT SỰ KHÔNG HẠNH PHÚC ĐƯỢC CHỌN**
+
+Tôi nghĩ sai lầm phổ biến nhất cho nhân loại là tin rằng bạn sẽ được làm cho hạnh phúc vì một số hoàn cảnh bên ngoài. Tôi biết điều đó không phải là bản gốc. Điều đó không phải là mới. Đó là trí tuệ Phật giáo cơ bản - tôi không nhận tín dụng cho nó. Tôi nghĩ tôi thực sự chỉ nhận ra nó ở một cấp độ cơ bản, bao gồm cả bản thân mình.
+
+Chúng tôi đã mua một chiếc xe mới. Bây giờ, tôi đang chờ đợi chiếc xe mới đến. Tất nhiên, mỗi đêm, tôi đều trên các diễn đàn đọc về chiếc xe. Tại sao? Đó là một đối tượng ngớ ngẩn. Đó là một chiếc xe ngớ ngẩn. Nó sẽ không thay đổi cuộc đời tôi nhiều hoặc tất cả. Tôi biết khoảnh khắc chiếc xe đến tôi sẽ không quan tâm về nó nữa. Vấn đề là, tôi nghiện ham muốn. Tôi nghiện ý tưởng về điều bên ngoài này mang lại
