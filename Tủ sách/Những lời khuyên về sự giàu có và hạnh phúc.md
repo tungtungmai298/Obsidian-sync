@@ -1479,4 +1479,8 @@ Tôi sẽ không phải là người thành công nhất trên hành tinh, cũng
 
 ---
 
-**CHƯƠNG 23: CHỌN
+**CHƯƠNG 23: CHỌN ĐỂ GIẢI PHÓNG BẢN THÂN**
+
+Điều khó khăn nhất là không làm những gì bạn muốn — đó là biết những gì bạn muốn.
+
+Hãy nhận biết không có "người lớn." Mọi người đều làm cho nó như họ đi cùng. Bạn phải tìm thấy con đường riêng của bạn, chọn, chọn và loại bỏ khi bạn thấy phù hợp. Tìm ra nó cho chính mình, và làm điều đó. [71]
