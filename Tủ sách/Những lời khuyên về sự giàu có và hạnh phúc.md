@@ -775,3 +775,34 @@ Tìm ra những gì bạn giỏi và bắt đầu giúp đỡ những người k
 
 Một ông chủ cũ đã từng cảnh báo: "Bạn sẽ không bao giờ giàu có vì bạn rõ ràng là thông minh, và ai đó sẽ luôn đề nghị bạn một công việc mà chỉ đủ tốt."
 
+Vẫn còn khá nhiều nội dung, nhưng tôi sẽ báo cho bạn khi gần hết. Tiếp tục nhé:
+
+**CHƯƠNG 14: TÌM CÔNG VIỆC MÀ CẢM THẤY NHƯ CHƠI**
+
+Làm thế nào bạn quyết định thành lập công ty đầu tiên của bạn?
+
+Tôi đang làm việc tại công ty công nghệ này gọi là @Home Network, và tôi đã nói với mọi người xung quanh tôi — ông chủ của tôi, đồng nghiệp, bạn bè của tôi, "Ở Thung lũng Silicon, tất cả những người khác này đang thành lập công ty. Có vẻ như họ có thể làm điều đó. Tôi sẽ thành lập một công ty. Tôi chỉ ở đây tạm thời. Tôi là một doanh nhân."
+
+...Tôi thực sự không có ý định lừa dối bản thân. Nó không phải là một điều có chủ ý, tính toán.
+
+Tôi chỉ đang trút giận, nói lớn tiếng, quá thật thà. Nhưng tôi đã không thực sự thành lập một công ty. Điều này là vào năm 1996, đó là một đề xuất đáng sợ hơn, khó khăn hơn nhiều để bắt đầu một công ty sau đó. Đủ chắc chắn, mọi người bắt đầu nói "Bạn vẫn làm gì ở đây? Tôi nghĩ bạn đã rời đi để thành lập một công ty?" và "Wow, bạn vẫn ở đây..." Tôi đã thực sự xấu hổ khi bắt đầu công ty riêng của mình. [5]
+
+Vâng, tôi biết một số người không nhất thiết phải sẵn sàng để trở thành doanh nhân, nhưng về lâu dài, chúng ta đã nghĩ ra ý tưởng này từ đâu điều đúng đắn hợp lý để làm là để mọi người làm việc cho người khác? Đó là một mô hình階級性 rất cao. [14]
+
+**TÌM CÔNG VIỆC MÀ CẢM THẤY NHƯ CHƠI**
+
+Con người đã phát triển như những người săn bắn hái lượm nơi tất cả chúng ta làm việc cho chính mình. Chỉ vào đầu nông nghiệp chúng ta mới trở nên có tính階級性 cao hơn. Cách mạng công nghiệp và các nhà máy đã làm cho chúng ta cực kỳ có tính階級性 vì một cá nhân không nhất thiết có thể sở hữu hoặc xây dựng một nhà máy, nhưng bây giờ, nhờ internet, chúng ta đang quay trở lại một thời đại nơi ngày càng có nhiều người có thể làm việc cho chính mình. Tôi thà là một
+
+doanh nhân thất bại hơn là ai đó chưa bao giờ cố gắng. Bởi vì ngay cả một doanh nhân thất bại cũng có bộ kỹ năng để tự mình làm điều đó. [14]
+
+Có gần 7 tỷ người trên hành tinh này. Một ngày nào đó, tôi hy vọng, sẽ có gần 7 tỷ công ty.
+
+Tôi đã học cách kiếm tiền bởi vì đó là một sự cần thiết. Sau khi nó ngừng là một sự cần thiết, tôi đã ngừng quan tâm về nó. Ít nhất đối với tôi, công việc là một phương tiện để đạt được một kết thúc. Kiếm tiền là một phương tiện để đạt được một kết thúc. Tôi quan tâm nhiều hơn đến việc giải quyết các vấn đề hơn là tôi đang trong việc kiếm tiền.
+
+Bất kỳ mục tiêu cuối cùng nào cũng sẽ chỉ dẫn đến một mục tiêu khác, dẫn đến một mục tiêu khác. Chúng ta chỉ chơi các trò chơi trong cuộc sống. Khi bạn lớn lên, bạn đang chơi trò chơi trường học, hoặc bạn đang chơi trò chơi xã hội. Sau đó, bạn đang chơi trò chơi tiền bạc và sau đó bạn đang chơi trò chơi địa vị. Những trò chơi này chỉ có đường chân trời sống lâu hơn và lâu hơn và lâu hơn. Tại một số điểm, ít nhất tôi tin, đây chỉ là những trò chơi. Đây là những trò chơi nơi kết quả thực sự ngừng quan trọng một khi bạn nhìn thấu trò chơi.
+
+Sau đó, bạn chỉ mệt mỏi với các trò chơi. Tôi sẽ nói rằng tôi đang ở giai đoạn nơi tôi chỉ mệt mỏi với các trò chơi. Tôi không nghĩ có bất kỳ mục tiêu cuối cùng hoặc mục đích nào. Tôi chỉ đang sống cuộc sống như tôi muốn. Tôi thực sự chỉ làm điều đó khoảnh khắc này đến khoảnh khắc.
+
+Tôi muốn ra khỏi băng chuyền khoái lạc. [1]
+
+Những gì bạn thực sự muốn là tự do. Bạn muốn tự do khỏi các vấn đề tiền bạc của bạn, phải không? Tôi nghĩ điều đó là ổn. Một khi bạn có thể giải quyết
