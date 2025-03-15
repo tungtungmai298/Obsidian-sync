@@ -3,8 +3,6 @@
 
 **NHẬT KÝ CỦA NAVAL RAVIKANT**
 
-
-
 Thật lạ lùng khi tôi viết những dòng này, vì tôi đã cam kết  
 nhiều năm trước để không bao giờ viết lời tựa.  
 Tôi đang tạo một ngoại lệ hiếm hoi trong trường hợp này vì ba lý do. Đầu tiên,  
