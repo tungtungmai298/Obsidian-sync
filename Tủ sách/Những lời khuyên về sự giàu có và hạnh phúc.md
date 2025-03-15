@@ -1331,5 +1331,5 @@ Bạn mất cảm giác kỳ diệu thời thơ ấu của bạn và có mặt v
 
 Làm thế nào để bạn có được những con hàu đó tắt bạn? Những gì xảy ra trong thiền là bạn đang ngồi đó và không chống lại tâm trí của bạn. Những điều này sẽ bắt đầu sủi bọt lên. Nó giống như một hộp thư đến khổng lồ của các email không được trả lời, quay trở lại tuổi thơ của bạn. Chúng sẽ đi ra từng cái một, và bạn sẽ bị buộc phải đối phó với chúng.
 
-Bạn sẽ bị buộc phải giải quyết chúng. Giải quyết chúng không cần
+Bạn sẽ bị buộc phải giải quyết chúng. Giải quyết chúng không cần 
 
