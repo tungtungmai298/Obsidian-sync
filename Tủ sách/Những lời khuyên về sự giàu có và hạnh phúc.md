@@ -1381,5 +1381,13 @@ Nó gần như bạn đang lấy bản thân ra khỏi một khung nhất địn
 
 Phật tử nói về nhận thức so với bản ngã. Họ thực sự đang nói về làm thế nào bạn có thể nghĩ về bộ não của bạn, ý thức của bạn, như một cơ chế nhiều lớp. Có một lõi cơ sở, hệ điều hành cấp hạt nhân đang chạy. Sau đó, có những ứng dụng đang chạy trên đầu. (Tôi thích nghĩ về nó như máy tính và nói chuyện mọt sách.)
 
-Tôi thực sự đang quay trở lại mức độ nhận thức của tôi của 
+Tôi thực sự đang quay trở lại mức độ nhận thức của tôi của OS, cái mà
+
+luôn bình tĩnh, luôn hòa bình và nói chung là hạnh phúc và hài lòng. Tôi đang cố gắng ở lại ở chế độ nhận thức và không kích hoạt tâm trí khỉ, cái mà luôn lo lắng, sợ hãi và lo lắng. Nó phục vụ mục đích đáng kinh ngạc, nhưng tôi cố gắng không kích hoạt tâm trí khỉ cho đến khi tôi cần nó. Khi tôi cần nó, tôi muốn chỉ cần tập trung vào điều đó. Nếu tôi chạy nó 24/7, tôi lãng phí năng lượng và tâm trí khỉ trở thành tôi. Tôi nhiều hơn tâm trí khỉ của tôi.
+
+Một điều khác: tinh thần, tôn giáo, Phật giáo hoặc bất cứ điều gì bạn theo dõi sẽ dạy cho bạn theo thời gian bạn nhiều hơn chỉ là tâm trí của bạn. Bạn nhiều hơn chỉ là thói quen của bạn. Bạn nhiều hơn chỉ là sở thích của bạn. Bạn là một mức độ nhận thức. Bạn là một cơ thể. Con người hiện đại, chúng ta không sống đủ trong cơ thể của chúng ta. Chúng ta không sống đủ trong nhận thức của chúng ta. Chúng ta sống quá nhiều trong độc thoại nội bộ này trong đầu của chúng ta. Tất cả trong số đó chỉ được lập trình vào bạn bởi xã hội và bởi môi trường khi bạn còn trẻ hơn.
+
+Bạn về cơ bản là một bó DNA mà phản ứng với các hiệu ứng môi trường khi bạn còn trẻ hơn. Bạn đã ghi lại những kinh nghiệm tốt và xấu, và bạn sử dụng chúng để đánh giá trước mọi thứ ném chống lại bạn. Sau đó, bạn đang sử dụng những kinh nghiệm đó, liên tục cố gắng và dự đoán và thay đổi tương lai.
+
+Khi bạn già đi, tổng số các sở thích bạn đã tích lũy được là rất, rất lớn. Những phản ứng theo thói quen này kết thúc như những đoàn tàu hàng rời bỏ kiểm soát kiểm soát tâm trạng của bạn. Chúng ta nên kiểm soát tâm trạng của riêng mình. Tại sao chúng ta không nghiên cứu làm thế nào để kiểm soát tâm trạng của chúng ta? Điều gì một điều khéo léo nó sẽ là nếu bạn có thể nói, "Ngay bây giờ tôi muốn được trong trạng thái tò mò," và sau đó bạn có thể thực sự nhận được bản thân vào trạng thái tò mò. Hoặc nói, "Tôi muốn được trong một trạng thái tang tóc. Tôi đang tang tóc một người thân yêu, và tôi muốn
 
