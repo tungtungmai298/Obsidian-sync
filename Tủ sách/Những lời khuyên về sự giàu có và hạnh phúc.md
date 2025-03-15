@@ -356,3 +356,178 @@ Hầu hết mọi thứ trong nhà bạn, tại nơi làm việc của bạn và
 Vì vậy, công nghệ là tập hợp những thứ, như Alan Kay đã nói, chưa hoạt động tốt [sửa chữa: Danny Hillis]. Một khi một cái gì đó hoạt động, nó không còn là công nghệ nữa. Xã hội luôn muốn những thứ mới. Và nếu bạn muốn giàu có, bạn muốn tìm ra cái nào trong những thứ đó bạn có thể cung cấp cho xã hội mà nó chưa biết cách có được nhưng nó sẽ muốn và cung cấp nó là tự nhiên đối với bạn, trong bộ kỹ năng của bạn và trong khả năng của bạn.
 
 Sau đó, bạn phải tìm ra cách mở rộng quy mô nó bởi vì nếu bạn chỉ xây dựng một, thì điều đó không đủ. Bạn phải xây dựng hàng ngàn, hoặc hàng trăm ngàn, hoặc hàng triệu, hoặc hàng tỷ trong số đó để mọi người có thể có một. Steve Jobs (và nhóm của anh ấy, tất nhiên) đã tìm ra xã hội sẽ muốn điện thoại thông minh. Một máy tính trong túi của họ có tất cả khả năng điện thoại gấp một trăm lần và dễ sử dụng. Vì vậy, họ đã tìm ra cách xây dựng nó và sau đó họ đã tìm ra cách mở rộng quy mô nó. [78]
+
+**CHƯƠNG 6: TÌM VÀ XÂY DỰNG KIẾN THỨC CỤ THỂ**
+
+Trở thành người giỏi nhất trên thế giới ở những gì bạn làm.
+
+Tiếp tục định nghĩa lại những gì bạn làm cho đến khi điều này là đúng.
+
+Kỹ năng bán hàng là một hình thức kiến thức cụ thể.
+
+Có một thứ gọi là "bẩm sinh" trong bán hàng. Bạn gặp họ mọi lúc trong các công ty khởi nghiệp và vốn đầu tư mạo hiểm. Khi bạn gặp một người bẩm sinh về bán hàng, bạn chỉ biết họ tuyệt vời. Họ thực sự giỏi những gì họ làm. Đó là một hình thức kiến thức cụ thể.
+
+Rõ ràng là họ đã học ở đâu đó, nhưng họ đã không học nó trong một môi trường lớp học. Họ có lẽ đã học được trong thời thơ ấu của họ trong sân trường, hoặc họ đã học được cách thương lượng với cha mẹ của họ. Có lẽ một số là một thành phần di truyền trong DNA.
+
+Nhưng bạn có thể cải thiện kỹ năng bán hàng. Bạn có thể đọc Robert Cialdini, bạn có thể tham gia một hội thảo đào tạo bán hàng, bạn có thể bán hàng tận nhà. Nó là tàn bạo nhưng sẽ đào tạo bạn rất nhanh chóng. Bạn chắc chắn có thể cải thiện kỹ năng bán hàng của mình.
+
+Kiến thức cụ thể không thể được dạy, nhưng nó có thể được học.
+
+Khi tôi nói về kiến thức cụ thể, ý tôi là hãy tìm ra những gì bạn đã làm khi còn là một đứa trẻ hoặc thiếu niên gần như dễ dàng. Một cái gì đó bạn thậm chí không coi là một kỹ năng, nhưng mọi người xung quanh bạn nhận thấy. Mẹ hoặc người bạn thân nhất của bạn khi lớn lên sẽ biết.
+
+Ví dụ về những gì kiến thức cụ thể của bạn có thể là:
+
+- Kỹ năng bán hàng
+    
+- Tài năng âm nhạc, với khả năng chọn bất kỳ nhạc cụ nào
+    
+- Một tính cách ám ảnh: bạn đi sâu vào mọi thứ và nhớ chúng một cách nhanh chóng
+    
+- Tình yêu khoa học viễn tưởng: bạn đã đọc khoa học viễn tưởng, có nghĩa là bạn hấp thụ rất nhiều kiến thức rất nhanh
+    
+- Chơi rất nhiều trò chơi, bạn hiểu lý thuyết trò chơi khá tốt
+    
+- Tán gẫu, đào sâu vào mạng lưới bạn bè của bạn. Điều đó có thể biến bạn thành một nhà báo rất thú vị.
+    
+
+Kiến thức cụ thể là loại kết hợp kỳ lạ này của các đặc điểm độc đáo từ DNA của bạn, sự giáo dục độc đáo của bạn và phản ứng của bạn với nó. Nó gần như được nướng vào tính cách và bản sắc của bạn. Sau đó, bạn có thể trau dồi nó.
+
+Không ai có thể cạnh tranh với bạn khi là bạn.
+
+Hầu hết cuộc sống là một cuộc tìm kiếm cho ai và cái gì cần bạn nhất.
+
+Ví dụ, tôi thích đọc và tôi yêu thích công nghệ. Tôi học rất nhanh, và tôi chán nhanh. Nếu tôi đã đi vào một nghề nghiệp nơi tôi được yêu cầu đi sâu trong hai mươi năm vào cùng một chủ đề, nó sẽ không hoạt động. Tôi đang ở trong lĩnh vực đầu tư mạo hiểm, điều này đòi hỏi tôi phải tăng tốc rất, rất nhanh trên các công nghệ mới (và tôi được khen thưởng vì đã chán vì các công nghệ mới đến). Nó phù hợp khá tốt với kiến thức cụ thể và bộ kỹ năng của tôi. [10]
+
+Tôi muốn trở thành một nhà khoa học. Đó là nơi mà rất nhiều hệ thống phân cấp đạo đức của tôi đến từ đó. Tôi xem các nhà khoa học là ở trên cùng của chuỗi sản xuất cho nhân loại. Nhóm các nhà khoa học đã tạo ra những đột phá và đóng góp thực sự có lẽ đã thêm nhiều hơn vào xã hội loài người, tôi nghĩ, hơn bất kỳ tầng lớp đơn lẻ nào khác của con người. Không phải để lấy đi bất cứ điều gì từ nghệ thuật hoặc chính trị hoặc kỹ thuật hoặc kinh doanh, nhưng nếu không có khoa học, chúng ta vẫn sẽ tranh giành trong bụi bẩn chiến đấu với gậy và cố gắng đốt lửa.
+
+Xã hội, kinh doanh & tiền bạc là hạ lưu của công nghệ, bản thân nó là hạ lưu của khoa học. Khoa học được áp dụng là động cơ của nhân loại.
+
+Hệ quả: Các nhà khoa học ứng dụng là những người quyền lực nhất trên thế giới. Điều này sẽ trở nên rõ ràng hơn trong những năm tới.
+
+Toàn bộ hệ thống giá trị của tôi được xây dựng xung quanh các nhà khoa học, và tôi muốn trở thành một nhà khoa học tuyệt vời. Nhưng khi tôi thực sự nhìn lại những gì tôi đặc biệt giỏi và những gì tôi đã dành thời gian để làm, nó là nhiều hơn xung quanh việc kiếm tiền, mày mò với công nghệ và bán mọi người vào mọi thứ. Giải thích mọi thứ và nói chuyện với mọi người.
+
+Tôi có một số kỹ năng bán hàng, đó là một hình thức kiến thức cụ thể. Tôi có một số kỹ năng phân tích về cách kiếm tiền. Và tôi có khả năng hấp thụ dữ liệu này, ám ảnh về nó và chia nhỏ nó - đó là một kỹ năng cụ thể mà tôi có. Tôi cũng thích mày mò với công nghệ. Và tất cả những thứ này có cảm giác như đang chơi đối với tôi, nhưng nó trông giống như công việc đối với người khác.
+
+Có những người khác mà những điều này sẽ khó khăn, và họ nói, "Chà, làm thế nào để tôi giỏi trở nên súc tích và bán ý tưởng?" Chà, nếu bạn không giỏi nó rồi hoặc nếu bạn không thực sự thích nó, có lẽ đó không phải là điều của bạn - tập trung vào những gì bạn thực sự quan tâm.
+
+Người đầu tiên thực sự chỉ ra kiến thức cụ thể thực sự của tôi là mẹ tôi. Cô ấy đã làm điều đó như một câu nói ngoài lề, nói chuyện từ nhà bếp, và cô ấy đã nói điều đó khi tôi mười lăm hoặc mười sáu tuổi. Tôi đang nói với một người bạn của tôi rằng tôi muốn trở thành một nhà vật lý thiên văn, và cô ấy nói, "Không, bạn sẽ đi vào kinh doanh." Tôi đã kiểu, "Cái gì, mẹ tôi bảo tôi sẽ đi vào kinh doanh? Tôi sẽ trở thành một nhà vật lý thiên văn. Mẹ không biết cô ấy đang nói về cái gì." Nhưng mẹ biết chính xác những gì cô ấy đang nói. [78]
+
+Kiến thức cụ thể được tìm thấy nhiều hơn bằng cách theo đuổi tài năng bẩm sinh của bạn, sự tò mò chân thành của bạn và đam mê của bạn. Nó không phải bằng cách đến trường cho bất cứ điều gì là công việc nóng nhất; nó không phải bằng cách đi vào bất kỳ lĩnh vực nào mà các nhà đầu tư nói là nóng nhất.
+
+Rất thường xuyên, kiến thức cụ thể là ở rìa của kiến thức. Đó cũng là những thứ chỉ mới được tìm ra hoặc thực sự khó để tìm ra. Nếu bạn không dồn hết 100% vào nó, một người khác ai dồn hết 100% vào nó sẽ vượt trội hơn bạn. Và họ sẽ không chỉ vượt trội hơn bạn một chút —họ sẽ vượt trội hơn bạn rất nhiều
+
+bởi vì bây giờ chúng ta đang hoạt động trong lĩnh vực ý tưởng, lãi kép thực sự áp dụng và đòn bẩy thực sự áp dụng. [78]
+
+Internet đã mở rộng đáng kể không gian nghề nghiệp có thể có. Hầu hết mọi người chưa tìm ra điều này.
+
+Bạn có thể lên internet và bạn có thể tìm thấy khán giả của mình. Và bạn có thể xây dựng một doanh nghiệp, và tạo ra một sản phẩm, và xây dựng sự giàu có, và làm cho mọi người hạnh phúc chỉ bằng cách thể hiện bản thân một cách độc đáo qua internet. [78]
+
+Internet cho phép bất kỳ sự quan tâm thích hợp nào, miễn là bạn là người giỏi nhất ở nó để mở rộng quy mô. Và tin tuyệt vời là vì mỗi con người là khác nhau, mọi người đều giỏi nhất ở một cái gì đó —là chính họ.
+
+Một tweet khác tôi đã có giá trị đan xen vào, nhưng không đi vào cơn bão tweet "Làm thế nào để làm giàu", rất đơn giản: "Thoát khỏi sự cạnh tranh thông qua tính xác thực." Về cơ bản, khi bạn đang cạnh tranh với mọi người, đó là vì bạn đang sao chép họ. Đó là bởi vì bạn đang cố gắng làm điều tương tự. Nhưng mỗi con người là khác nhau. Đừng sao chép. [78]
+
+Nếu bạn đang xây dựng và tiếp thị một cách cơ bản một cái gì đó là một phần mở rộng của bạn là ai, không ai có thể cạnh tranh với bạn về điều đó. Ai sẽ cạnh tranh với Joe Rogan hoặc Scott Adams? Điều đó là không thể. Có ai khác sẽ đến và viết một Dilbert hay hơn? Không. Có ai sẽ cạnh tranh với Bill Watterson và tạo ra một Calvin và Hobbes hay hơn không? Không. Họ đang xác thực. [78]
+
+Những công việc tốt nhất không được quy định cũng không được cấp bằng. Chúng là những biểu hiện sáng tạo của những người học liên tục trên thị trường tự do.
+
+Kỹ năng quan trọng nhất để làm giàu là trở thành một người học vĩnh viễn. Bạn phải biết làm thế nào để học bất cứ điều gì bạn muốn học. Mô hình cũ của việc kiếm tiền sẽ đến trường trong bốn năm, lấy bằng của bạn và làm việc như một chuyên gia trong ba mươi năm. Nhưng mọi thứ thay đổi nhanh chóng bây giờ. Bây giờ, bạn phải tăng tốc trên một nghề nghiệp mới trong vòng chín tháng và nó đã lỗi thời bốn năm sau đó. Nhưng trong vòng ba năm sản xuất đó, bạn có thể trở nên rất giàu có.
+
+Hôm nay quan trọng hơn nhiều để có thể trở thành một chuyên gia trong một lĩnh vực hoàn toàn mới trong chín đến mười hai tháng so với việc đã nghiên cứu điều "đúng" từ rất lâu trước đây. Bạn thực sự quan tâm đến việc đã nghiên cứu các nền tảng, vì vậy bạn không sợ bất kỳ cuốn sách nào. Nếu bạn đến thư viện và có một cuốn sách bạn không thể hiểu, bạn phải đào sâu và nói, "Nền tảng cần thiết cho tôi để học điều này là gì?" Các nền tảng rất quan trọng. [74]
+
+Số học và tính toán cơ bản quan trọng hơn nhiều trong cuộc sống so với việc thực hiện tính toán. Tương tự, có thể truyền đạt bản thân một cách đơn giản sử dụng những từ tiếng Anh thông thường quan trọng hơn nhiều so với việc có thể viết thơ, có một vốn từ vựng phong phú hoặc nói bảy ngôn ngữ nước ngoài khác nhau.
+
+Biết làm thế nào để thuyết phục khi nói quan trọng hơn nhiều so với việc là một nhà tiếp thị kỹ thuật số chuyên gia hoặc trình tối ưu hóa nhấp chuột. Các nền tảng là quan trọng. Tốt hơn nhiều là ở mức 9/10 hoặc 10/10 trên các nền tảng hơn là cố gắng và đi sâu siêu sâu vào mọi thứ.
+
+Bạn cần phải sâu trong một cái gì đó bởi vì nếu không bạn sẽ rộng một dặm và sâu một inch và bạn sẽ không nhận được những gì bạn muốn từ cuộc sống. Bạn chỉ có thể đạt được sự làm chủ trong một hoặc hai điều. Thường thì đó là những điều bạn bị ám ảnh về. [74]
+
+---
+
+**CHƯƠNG 7: CHƠI CÁC TRÒ CHƠI DÀI HẠN VỚI NHỮNG NGƯỜI DÀI HẠN**
+
+Bạn nói, "Tất cả các lợi nhuận trong cuộc sống, cho dù là sự giàu có, mối quan hệ, hay kiến thức, đều đến từ lãi kép." Làm thế nào để người ta biết liệu họ có đang kiếm lãi kép hay không?
+
+Lãi kép là một khái niệm rất mạnh mẽ. Lãi kép áp dụng cho nhiều hơn chỉ là lãi kép vốn. Vốn lãi kép chỉ là sự khởi đầu.
+
+Lãi kép trong các mối quan hệ kinh doanh là rất quan trọng. Hãy nhìn vào một số vai trò hàng đầu trong xã hội, như tại sao ai đó là một Giám đốc điều hành của một công ty công cộng hoặc quản lý hàng tỷ đô la. Đó là bởi vì mọi người tin tưởng họ. Họ được tin tưởng bởi vì các mối quan hệ họ đã xây dựng và công việc họ đã làm đã được ghép lại. Họ đã gắn bó với doanh nghiệp và cho thấy bản thân (một cách hữu hình và có trách nhiệm) là những người có tính chính trực cao.
+
+Lãi kép cũng xảy ra trong danh tiếng của bạn. Nếu bạn có một danh tiếng xuất sắc và bạn tiếp tục xây dựng nó trong nhiều thập kỷ, mọi người sẽ nhận thấy. Danh tiếng của bạn sẽ thực sự kết thúc là hàng ngàn hoặc hàng chục ngàn lần giá trị hơn so với người khác người rất tài năng nhưng không giữ cho lãi kép trong danh tiếng diễn ra.
+
+Điều này cũng đúng khi bạn đang làm việc với những người riêng lẻ. Nếu bạn đã làm việc với ai đó trong năm hoặc mười năm và bạn vẫn thích làm việc với họ, rõ ràng bạn tin tưởng họ và những điểm yếu nhỏ là biến mất. Tất cả các cuộc đàm phán thông thường trong các mối quan hệ kinh doanh có thể hoạt động rất đơn giản bởi vì bạn tin tưởng lẫn nhau - bạn biết nó sẽ thành công.
+
+Ví dụ, có một Thiên thần khác ở Thung lũng Silicon tên là Elad Gil, người tôi thích thực hiện các giao dịch với.
+
+Tôi thích làm việc với Elad vì tôi biết khi giao dịch đang được thực hiện, anh ấy sẽ uốn cong ngược lại để cho tôi thêm. Anh ấy sẽ luôn làm tròn có lợi cho tôi nếu có một đô la thêm vào
+
+đang được phân phối ở đây hoặc ở đó. Nếu có một số chi phí để trả, anh ấy sẽ trả nó ra khỏi túi riêng của mình và anh ấy thậm chí sẽ không đề cập đến nó với tôi. Bởi vì anh ấy đi quá xa khỏi con đường của mình để đối xử với tôi rất tốt, tôi gửi cho anh ấy mọi giao dịch tôi có - tôi cố gắng đưa anh ấy vào mọi thứ. Sau đó, tôi đi ra khỏi con đường của mình để cố gắng và trả tiền cho anh ấy. Ghép trong những mối quan hệ đó là rất giá trị. [10]
+
+Ý định không quan trọng. Hành động thì có. Đó là lý do tại sao trở nên đạo đức là khó khăn.
+
+Khi bạn tìm thấy điều đúng đắn để làm, khi bạn tìm thấy những người phù hợp để làm việc cùng, hãy đầu tư sâu sắc. Gắn bó với nó trong nhiều thập kỷ là thực sự cách bạn tạo ra những lợi nhuận lớn trong các mối quan hệ của bạn và trong tiền bạc của bạn. Vì vậy, lãi kép là rất quan trọng. [10]
+
+99% nỗ lực là lãng phí.
+
+Rõ ràng, không có gì bị lãng phí hoàn toàn bởi vì đó là tất cả một khoảnh khắc học tập. Bạn có thể học được từ bất cứ điều gì. Nhưng ví dụ, khi bạn quay trở lại trường học, 99 phần trăm của các bài báo kỳ hạn bạn đã làm, sách bạn đã đọc, bài tập bạn đã làm, những điều bạn đã học, chúng không thực sự áp dụng. Bạn có thể đã đọc địa lý và lịch sử bạn không bao giờ tái sử dụng. Bạn có thể đã học một ngôn ngữ bạn không nói nữa. Bạn có thể đã nghiên cứu một nhánh toán học bạn hoàn toàn quên.
+
+Tất nhiên, đây là những kinh nghiệm học tập. Bạn đã học được. Bạn đã học được giá trị của sự chăm chỉ; bạn có thể đã học được một cái gì đó đã đi sâu vào tâm lý của bạn và trở thành một phần của
+
+những gì bạn đang làm bây giờ. Nhưng ít nhất khi nói đến cuộc sống hướng tới mục tiêu, chỉ có khoảng 1 phần trăm của những nỗ lực bạn đã thực hiện đã được đền đáp.
+
+Một ví dụ khác là tất cả những người bạn đã hẹn hò cho đến khi bạn gặp chồng hoặc vợ của bạn. Đó là thời gian lãng phí theo nghĩa mục tiêu. Không lãng phí theo nghĩa hàm mũ, không lãng phí theo nghĩa học tập, nhưng chắc chắn lãng phí theo nghĩa mục tiêu.
+
+Lý do tôi nói điều này là không phải để đưa ra một bình luận trơn tru về cách 99 phần trăm cuộc sống của bạn bị lãng phí và chỉ có 1 phần trăm là hữu ích. Tôi nói điều này bởi vì bạn nên rất chu đáo và nhận ra trong hầu hết mọi thứ (mối quan hệ, công việc, ngay cả trong việc học) những gì bạn đang cố gắng làm là tìm điều bạn có thể dồn hết vào để kiếm lãi kép.
+
+Khi bạn đang hẹn hò, khoảnh khắc bạn biết mối quan hệ này sẽ không phải là mối quan hệ dẫn đến hôn nhân, bạn nên có lẽ tiếp tục. Khi bạn đang học một cái gì đó, như một lớp địa lý hoặc lịch sử, và bạn nhận ra bạn sẽ không bao giờ sử dụng thông tin, bỏ lớp. Đó là một sự lãng phí thời gian. Đó là một sự lãng phí năng lượng não của bạn.
+
+Tôi không nói đừng làm 99 phần trăm, bởi vì rất khó để xác định 1 phần trăm là gì. Điều tôi đang nói là: khi bạn tìm thấy 1 phần trăm kỷ luật của bạn sẽ không bị lãng phí, mà bạn sẽ có thể đầu tư vào trong phần còn lại của cuộc đời bạn và có ý nghĩa với bạn - dồn hết vào và quên đi phần còn lại. [10]
+
+---
+
+**CHƯƠNG 8: ĐẢM NHẬN TRÁCH NHIỆM GIẢI TRÌNH**
+
+Ý định không quan trọng. Hành động thì có.
+
+Nắm lấy trách nhiệm giải trình và chấp nhận rủi ro kinh doanh dưới tên của chính bạn. Xã hội sẽ thưởng cho bạn trách nhiệm, vốn chủ sở hữu và đòn bẩy.
+
+Để làm giàu, bạn cần đòn bẩy. Đòn bẩy đến từ lao động, đến từ vốn, hoặc nó có thể đến thông qua mã hoặc phương tiện truyền thông. Nhưng hầu hết những điều này, như lao động và vốn, mọi người phải cho bạn. Đối với lao động, ai đó phải theo bạn. Đối với vốn, ai đó phải cho bạn tiền, tài sản để quản lý, hoặc máy móc.
+
+Vì vậy, để có được những thứ này, bạn phải xây dựng sự tín nhiệm, và bạn phải làm điều đó dưới tên của chính bạn càng nhiều càng tốt, điều đó là rủi ro. Vì vậy, trách nhiệm giải trình là một điều hai lưỡi. Nó cho phép
+
+bạn để ghi công khi mọi thứ diễn ra tốt và chịu gánh nặng của thất bại khi mọi thứ diễn ra tồi tệ. [78]
+
+Trách nhiệm giải trình rõ ràng là quan trọng. Không có trách nhiệm giải trình, bạn không có động lực. Không có trách nhiệm giải trình, bạn không thể xây dựng sự tín nhiệm. Nhưng bạn chấp nhận rủi ro. Bạn chấp nhận thất bại. Bạn chấp nhận sự sỉ nhục. Bạn chấp nhận thất bại dưới tên của chính bạn.
+
+May mắn thay, trong xã hội hiện đại, không còn nhà tù cho những người mắc nợ và mọi người không bị bỏ tù hoặc xử tử vì mất tiền của người khác, nhưng chúng ta vẫn được kết nối xã hội để không thất bại trước công chúng dưới tên của chính chúng ta. Những người có khả năng thất bại trước công chúng dưới tên của chính họ thực sự có được rất nhiều quyền lực.
+
+Tôi sẽ đưa ra một giai thoại cá nhân. Cho đến khoảng năm 2013, 2014, tính cách công khai của tôi hoàn toàn xoay quanh các công ty khởi nghiệp và đầu tư. Chỉ khoảng năm 2014, 2015 tôi mới bắt đầu nói về triết học và những điều tâm lý và những điều rộng lớn hơn. Nó khiến tôi hơi lo lắng vì tôi đã làm điều đó dưới tên của chính mình. Chắc chắn có những người trong ngành đã gửi cho tôi những tin nhắn thông qua kênh sau như, "Bạn đang làm gì vậy? Bạn đang kết thúc sự nghiệp của mình. Điều này là ngu ngốc."
+
+Tôi chỉ tiếp tục với nó. Tôi đã chấp nhận rủi ro. Tương tự với tiền điện tử. Trước đây, tôi đã chấp nhận rủi ro. Nhưng khi bạn đưa tên mình ra ngoài đó, bạn chấp nhận rủi ro với một số điều. Bạn cũng nhận được để gặt hái những phần thưởng. Bạn nhận được những lợi ích. [78]
+
+Trong những ngày xưa cũ, thuyền trưởng được kỳ vọng sẽ xuống tàu. Nếu con tàu đang chìm, thì người cuối cùng rời đi là thuyền trưởng. Trách nhiệm giải trình đi kèm với những rủi ro thực sự, nhưng chúng ta đang nói về một bối cảnh kinh doanh.
+
+Rủi ro ở đây sẽ là bạn có lẽ sẽ là người cuối cùng để lấy lại vốn của bạn. Bạn sẽ là người cuối cùng được trả tiền cho thời gian của bạn. Thời gian bạn bỏ ra, vốn bạn bỏ vào công ty, đây là những rủi ro. [78]
+
+Nhận ra rằng trong xã hội hiện đại, rủi ro giảm là không lớn như vậy. Ngay cả phá sản cá nhân cũng có thể xóa sạch các khoản nợ trong các hệ sinh thái tốt. Tôi quen thuộc nhất với Thung lũng Silicon, nhưng nói chung, mọi người sẽ tha thứ cho những thất bại miễn là bạn trung thực và nỗ lực có tính chính trực cao.
+
+Không có thực sự nhiều điều để sợ hãi về mặt thất bại, và vì vậy mọi người nên đảm nhận nhiều trách nhiệm giải trình hơn so với những gì họ làm. [78]
+
+---
+
+**CHƯƠNG 9: XÂY DỰNG HOẶC MUA VỐN CHỦ SỞ HỮU TRONG MỘT DOANH NGHIỆP**
+
+Nếu bạn không sở hữu một phần của một doanh nghiệp, bạn không có con đường hướng tới tự do tài chính.
+
+Tại sao việc sở hữu vốn chủ sở hữu trong một doanh nghiệp lại quan trọng để trở nên giàu có?
+
+Đó là quyền sở hữu so với công việc hưởng lương. Nếu bạn được trả tiền để thuê thời gian của bạn, ngay cả luật sư và bác sĩ, bạn có thể kiếm được một số tiền, nhưng bạn sẽ không kiếm được số tiền mang lại cho bạn sự tự do tài chính. Bạn sẽ không có thu nhập thụ động nơi một doanh nghiệp đang kiếm tiền cho bạn khi bạn đang đi nghỉ. [10]
+
+Đây có lẽ là một trong những điểm quan trọng nhất. Mọi người dường như nghĩ rằng bạn có thể tạo ra sự giàu có - kiếm tiền thông qua công việc. Nó có lẽ sẽ không thành công. Có nhiều lý do cho điều đó.
+
+Không có quyền sở hữu, các đầu vào của bạn gắn liền rất chặt chẽ với các đầu ra của bạn. Trong gần như bất kỳ công việc hưởng lương nào, ngay cả một người trả nhiều tiền mỗi giờ như một luật sư hoặc một bác sĩ, bạn vẫn bỏ ra hàng giờ và mỗi giờ bạn được trả tiền.
+
+Không có quyền sở hữu, khi bạn đang ngủ, bạn không kiếm tiền. Khi bạn đã nghỉ hưu, bạn không kiếm tiền. Khi bạn đang đi nghỉ, bạn không kiếm tiền. Và bạn không thể kiếm tiền không tuyến tính.
+
+Nếu bạn nhìn vào ngay cả những bác sĩ trở nên giàu có (như thực sự giàu có), đó là bởi vì họ mở một doanh nghiệp. Họ mở một thực hành tư nhân. Thực hành tư nhân xây dựng một thương hiệu, và thương hiệu thu hút
+
+những người. Hoặc họ xây dựng một số loại thiết bị y tế, một thủ tục hoặc một quy trình với một tài sản trí tuệ.
+
+Về cơ bản, bạn đang làm việc cho ai đó khác, và người đó đang đảm nhận rủi ro và có trách nhiệm giải trình, tài sản trí tuệ và thương hiệu. Họ sẽ không trả cho bạn đủ. Họ sẽ trả cho bạn mức tối thiểu trần trụi họ phải, để bạn làm công việc của họ.
