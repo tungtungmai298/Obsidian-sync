@@ -1000,3 +1000,45 @@ Tuyệt vời có bao nhiêu người nhầm lẫn sự giàu có và trí tuệ
 **PHẦN II: HẠNH PHÚC**
 
 Ba điều quan trọng nhất trong cuộc sống là sự giàu có, sức khỏe và hạnh phúc. Chúng ta theo đuổi chúng theo thứ tự đó, nhưng tầm quan trọng của chúng là ngược lại.
+
+**CHƯƠNG 16: HỌC HẠNH PHÚC**
+
+Đừng coi bản thân quá nghiêm túc. Bạn chỉ là một con khỉ có kế hoạch.
+
+**HẠNH PHÚC LÀ HỌC ĐƯỢC**
+
+Mười năm trước, nếu bạn hỏi tôi hạnh phúc như thế nào, tôi sẽ bỏ qua câu hỏi. Tôi không muốn nói về nó.
+
+Trên thang điểm 1–10, tôi sẽ nói 2/10 hoặc 3/10. Có lẽ 4/10 vào những ngày tốt nhất của tôi. Nhưng tôi đã không đánh giá cao hạnh phúc.
+
+Hôm nay, tôi là một 9/10. Và có, có tiền giúp ích, nhưng nó thực sự chỉ là một mảnh nhỏ của nó. Hầu hết đến từ việc học hỏi trong những năm qua hạnh phúc của riêng tôi là điều quan trọng nhất đối với tôi, và tôi đã trau dồi nó với rất nhiều kỹ thuật. [10]
+
+Có lẽ hạnh phúc không phải là điều bạn thừa hưởng hoặc thậm chí chọn, mà là một kỹ năng cá nhân cao mà có thể được học, giống như thể lực hoặc dinh dưỡng.
+
+Hạnh phúc là một điều rất phát triển, tôi nghĩ, giống như tất cả các câu hỏi lớn. Khi bạn còn nhỏ, bạn đi đến mẹ của bạn và hỏi, "Điều gì xảy ra khi chúng ta chết? Có ông già Noel không? Có Chúa không? Tôi có nên hạnh phúc không? Tôi nên kết hôn với ai?" Những loại thứ đó. Không có câu trả lời trơn tru bởi vì không có câu trả lời áp dụng cho tất cả mọi người. Những loại câu hỏi này cuối cùng có câu trả lời, nhưng chúng có câu trả lời cá nhân.
+
+Câu trả lời phù hợp với tôi sẽ là vô nghĩa với bạn, và ngược lại. Dù hạnh phúc có nghĩa là gì đối với tôi, nó có nghĩa là một cái gì đó khác với bạn. Tôi nghĩ rằng nó rất quan trọng để khám phá những định nghĩa này là gì.
+
+Đối với một số người tôi biết, đó là một trạng thái dòng chảy. Đối với một số người, đó là sự hài lòng. Đối với một số người, đó là một cảm giác mãn nguyện. Định nghĩa của tôi tiếp tục phát triển. Câu trả lời tôi sẽ đưa cho bạn
+
+một năm trước sẽ khác với những gì tôi nói với bạn bây giờ.
+
+Hôm nay, tôi tin rằng hạnh phúc thực sự là một trạng thái mặc định. Hạnh phúc ở đó khi bạn loại bỏ cảm giác thiếu một cái gì đó trong cuộc sống của bạn.
+
+Chúng ta là những máy móc sinh tồn và sao chép có tính phán xét cao. Chúng ta liên tục đi xung quanh suy nghĩ, "Tôi cần điều này," hoặc "Tôi cần điều đó," bị mắc kẹt trong mạng lưới của ham muốn. Hạnh phúc là trạng thái khi không có gì thiếu. Khi không có gì thiếu, tâm trí của bạn tắt và ngừng chạy vào quá khứ hoặc tương lai để hối tiếc điều gì đó hoặc để lên kế hoạch một cái gì đó.
+
+Trong sự vắng mặt đó, trong một khoảnh khắc, bạn có sự im lặng bên trong. Khi bạn có sự im lặng bên trong, thì bạn hài lòng và bạn hạnh phúc. Cảm thấy tự do để không đồng ý. Một lần nữa, nó khác nhau cho mọi người.
+
+Mọi người nhầm lẫn tin rằng hạnh phúc chỉ là về những suy nghĩ tích cực và hành động tích cực. Tôi càng đọc, tôi càng học được, và tôi càng có kinh nghiệm (bởi vì tôi xác minh điều này cho bản thân), mọi suy nghĩ tích cực về cơ bản giữ bên trong nó một suy nghĩ tiêu cực. Đó là một sự tương phản với một cái gì đó tiêu cực. The Tao Te Ching nói điều này rõ ràng hơn bất kỳ ai tôi từng có thể, nhưng nó là tất cả tính hai mặt và phân cực. Nếu tôi nói tôi hạnh phúc, điều đó có nghĩa là tôi đã buồn tại một số điểm. Nếu tôi nói anh ấy hấp dẫn, thì ai đó khác là không hấp dẫn. Mọi suy nghĩ tích cực thậm chí có một hạt giống của một suy nghĩ tiêu cực bên trong nó và ngược lại, đó là lý do tại sao rất nhiều sự vĩ đại trong cuộc sống đến từ đau khổ. Bạn phải xem tiêu cực trước khi bạn có thể khao khát và đánh giá cao tích cực.
+
+Đối với tôi, hạnh phúc không phải là về những suy nghĩ tích cực. Nó không phải về
+
+những suy nghĩ tiêu cực. Nó là về sự vắng mặt của ham muốn, đặc biệt là sự vắng mặt của ham muốn cho những thứ bên ngoài. Càng ít ham muốn tôi có, tôi càng có thể chấp nhận trạng thái hiện tại của mọi thứ, tâm trí của tôi càng ít di chuyển, bởi vì tâm trí thực sự tồn tại trong chuyển động hướng tới tương lai hoặc quá khứ. Tôi càng có mặt, tôi sẽ càng hạnh phúc và mãn nguyện hơn. Nếu tôi gắn bó với một cảm giác, nếu tôi nói, "Ồ, tôi hạnh phúc bây giờ," và tôi muốn ở lại hạnh phúc, thì tôi sẽ bỏ ra khỏi hạnh phúc đó. Bây giờ, đột nhiên, tâm trí đang di chuyển. Nó đang cố gắng gắn bó với một cái gì đó. Nó đang cố gắng tạo ra một tình huống vĩnh viễn ra khỏi một tình huống tạm thời.
+
+Hạnh phúc đối với tôi chủ yếu là không đau khổ, không ham muốn, không suy nghĩ quá nhiều về tương lai hoặc quá khứ, thực sự nắm lấy khoảnh khắc hiện tại và thực tế là gì và cách nó là. [4]
+
+Nếu bạn từng muốn có hòa bình trong cuộc sống của bạn, bạn phải di chuyển vượt ra ngoài thiện và ác.
+
+Tự nhiên không có khái niệm về hạnh phúc hoặc bất hạnh. Tự nhiên tuân theo các quy luật toán học không phá vỡ và một chuỗi nguyên nhân và kết quả từ Vụ nổ lớn đến bây giờ. Mọi thứ đều hoàn hảo chính xác theo cách nó là. Nó chỉ là trong tâm trí cụ thể của chúng ta, chúng ta không hạnh phúc hoặc không hạnh phúc, và mọi thứ là hoàn hảo hoặc không hoàn hảo bởi vì những gì chúng ta mong muốn. [4]
+
+Thế giới chỉ phản ánh những cảm xúc của riêng bạn trở lại với bạn. Thực tế là trung lập. Thực tế không có phán xét. Đối với một cái cây, không có khái niệm về đúng hay sai, tốt hay xấu. Bạn được sinh ra, bạn có một loạt các trải nghiệm giác quan và kích thích (ánh sáng, màu sắc và âm thanh)
