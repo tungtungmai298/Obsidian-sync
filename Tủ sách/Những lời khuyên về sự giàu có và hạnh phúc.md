@@ -849,3 +849,32 @@ Ham muốn tiền bạc là xấu cho chúng ta bởi vì nó là một hố kh�
 
 Hình phạt cho tình yêu tiền bạc được giao cùng lúc với tiền bạc. Khi bạn kiếm tiền, bạn chỉ muốn nhiều hơn, và bạn trở nên hoang tưởng và sợ hãi mất những gì bạn có. Không có bữa trưa miễn phí.
 
+Bạn kiếm tiền để giải quyết các vấn đề về tiền bạc và vật chất của bạn.
+
+Tôi nghĩ cách tốt nhất để tránh xa tình yêu liên tục này của tiền bạc là không nâng cấp lối sống của bạn khi bạn kiếm tiền. Rất dễ dàng để tiếp tục nâng cấp lối sống của bạn khi bạn kiếm tiền. Nhưng nếu bạn có thể giữ lối sống của bạn cố định và hy vọng kiếm được tiền trong số tiền lớn thay vì một trickle tại một thời điểm, bạn sẽ không có thời gian để nâng cấp lối sống của bạn. Bạn có thể tiến xa đến mức bạn thực sự trở nên tự do về tài chính.
+
+Một điều khác giúp ích: Tôi đánh giá cao tự do hơn mọi thứ khác. Tất cả các loại tự do: tự do làm những gì tôi muốn, tự do khỏi những thứ tôi không muốn làm, tự do khỏi cảm xúc của riêng tôi hoặc những thứ có thể làm phiền sự bình yên của tôi. Đối với tôi, tự do là giá trị số một của tôi.
+
+Đến mức tiền bạc mua tự do, nó là tuyệt vời. Nhưng đến mức nó làm cho tôi ít tự do hơn, mà nó chắc chắn làm ở một số mức độ là tốt, tôi không thích nó. [74]
+
+Những người chiến thắng của bất kỳ trò chơi nào là những người nghiện đến mức họ tiếp tục chơi ngay cả khi tiện ích biên từ chiến thắng giảm.
+
+Tôi có phải bắt đầu một công ty để thành công?
+
+Các giai cấp thành công nhất của những người ở Thung lũng Silicon trên cơ sở nhất quán là một trong hai nhà đầu tư mạo hiểm (bởi vì họ được đa dạng hóa và kiểm soát những gì đã từng là một nguồn lực khan hiếm) hoặc những người rất giỏi trong việc xác định các công ty chỉ đạt đến sự phù hợp sản phẩm / thị trường. Những người đó có nền tảng, chuyên môn và tài liệu tham khảo mà những công ty đó thực sự muốn giúp
+
+họ mở rộng quy mô. Sau đó, họ đi vào Dropbox mới nhất hoặc Airbnb mới nhất.
+
+Những người đã ở Google, sau đó gia nhập Facebook khi có một trăm người và sau đó gia nhập Stripe khi có một trăm người?
+
+Khi Zuckerberg chỉ mới bắt đầu mở rộng quy mô công ty của mình và hoảng sợ, anh ấy đã kiểu, "Tôi không biết làm thế nào để làm điều này." Và anh ấy đã gọi Jim Breyer [nhà tư bản mạo hiểm và người sáng lập của Accel Partners]. Và Jim Breyer nói, "Chà, tôi có người đứng đầu sản phẩm thực sự tuyệt vời tại công ty khác này, và bạn cần người này." Những người đó có xu hướng làm tốt nhất, đã điều chỉnh rủi ro trong một khoảng thời gian dài, khác với các nhà đầu tư mạo hiểm. [30]
+
+Một số người thành công nhất tôi đã thấy ở Thung lũng Silicon đã có những đột phá rất sớm trong sự nghiệp của họ. Họ đã được thăng chức lên VP, giám đốc hoặc CEO, hoặc bắt đầu một công ty đã làm tốt khá sớm. Nếu bạn không được thăng chức qua các cấp bậc, thì sẽ trở nên khó khăn hơn để bắt kịp sau này trong cuộc sống. Thật tốt khi ở trong một công ty nhỏ hơn sớm bởi vì có ít cơ sở hạ tầng hơn để ngăn chặn sự thăng chức sớm. [76]
+
+Đối với ai đó đang ở giai đoạn đầu trong sự nghiệp của họ (và có lẽ thậm chí muộn hơn), điều quan trọng nhất về một công ty là mạng lưới cựu sinh viên bạn sẽ xây dựng. Hãy suy nghĩ về người bạn sẽ làm việc cùng và những gì những người đó sẽ tiếp tục làm. [76]
+
+---
+
+**CHƯƠNG 14: LÀM THẾ NÀO ĐỂ CÓ ĐƯỢC MAY MẮN**
+
+Tại sao bạn nói, "Làm giàu mà không cần may mắn"?
