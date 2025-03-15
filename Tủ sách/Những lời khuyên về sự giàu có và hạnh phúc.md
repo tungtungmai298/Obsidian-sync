@@ -1216,9 +1216,7 @@ Tôi nghĩ rằng sự tác động lẫn nhau giữa đường và chất béo 
 
 Trong tự nhiên, rất hiếm khi tìm thấy carbs và chất béo với nhau. Trong tự nhiên, tôi tìm thấy carbs và chất béo với nhau trong dừa, trong xoài, có lẽ trong chuối, nhưng nó về cơ bản là trái cây nhiệt đới. Sự kết hợp của đường và chất béo với nhau là thực sự chết người. Bạn phải cẩn thận về điều đó trong chế độ ăn uống của bạn.
 
-Tôi không phải là một chuyên gia, và vấn đề là chế độ ăn uống và dinh dưỡng giống như chính trị: mọi người đều nghĩ rằng họ là một chuyên gia. Bản sắc của họ được gói gọn trong đó bởi vì những gì họ đã được ăn hoặc những gì họ nghĩ rằng họ nên ăn rõ ràng là câu trả lời đúng. Mọi người đều có một tôn giáo nhỏ — đó chỉ là một chủ đề thực sự khó khăn
-
-để nói về. Tôi sẽ chỉ nói chung, bất kỳ chế độ ăn kiêng nhạy cảm nào đều tránh sự kết hợp của đường và chất béo với nhau. [2]
+Tôi không phải là một chuyên gia, và vấn đề là chế độ ăn uống và dinh dưỡng giống như chính trị: mọi người đều nghĩ rằng họ là một chuyên gia. Bản sắc của họ được gói gọn trong đó bởi vì những gì họ đã được ăn hoặc những gì họ nghĩ rằng họ nên ăn rõ ràng là câu trả lời đúng. Mọi người đều có một tôn giáo nhỏ — đó chỉ là một chủ đề thực sự khó khăn để nói về. Tôi sẽ chỉ nói chung, bất kỳ chế độ ăn kiêng nhạy cảm nào đều tránh sự kết hợp của đường và chất béo với nhau. [2]
 
 Chất béo trong chế độ ăn uống thúc đẩy sự no. Đường trong chế độ ăn uống thúc đẩy cơn đói. Hiệu ứng đường chi phối. Kiểm soát sự thèm ăn của bạn cho phù hợp.
 
