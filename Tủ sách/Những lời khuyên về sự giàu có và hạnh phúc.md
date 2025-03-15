@@ -1041,4 +1041,58 @@ Nếu bạn từng muốn có hòa bình trong cuộc sống của bạn, bạn 
 
 Tự nhiên không có khái niệm về hạnh phúc hoặc bất hạnh. Tự nhiên tuân theo các quy luật toán học không phá vỡ và một chuỗi nguyên nhân và kết quả từ Vụ nổ lớn đến bây giờ. Mọi thứ đều hoàn hảo chính xác theo cách nó là. Nó chỉ là trong tâm trí cụ thể của chúng ta, chúng ta không hạnh phúc hoặc không hạnh phúc, và mọi thứ là hoàn hảo hoặc không hoàn hảo bởi vì những gì chúng ta mong muốn. [4]
 
-Thế giới chỉ phản ánh những cảm xúc của riêng bạn trở lại với bạn. Thực tế là trung lập. Thực tế không có phán xét. Đối với một cái cây, không có khái niệm về đúng hay sai, tốt hay xấu. Bạn được sinh ra, bạn có một loạt các trải nghiệm giác quan và kích thích (ánh sáng, màu sắc và âm thanh)
+Thế giới chỉ phản ánh những cảm xúc của riêng bạn trở lại với bạn. Thực tế là trung lập. Thực tế không có phán xét. Đối với một cái cây, không có khái niệm về đúng hay sai, tốt hay xấu. Bạn được sinh ra, bạn có một loạt các trải nghiệm giác quan và kích thích (ánh sáng, màu sắc và âm thanh) và sau đó bạn chết. Cách bạn chọn để giải thích chúng là tùy thuộc vào bạn — bạn có sự lựa chọn đó.
+
+Đây là những gì tôi có nghĩa khi tôi nói hạnh phúc là một sự lựa chọn. Nếu bạn tin rằng đó là một sự lựa chọn, bạn có thể bắt đầu làm việc trên nó. [77]
+
+Không có lực lượng bên ngoài ảnh hưởng đến cảm xúc của bạn - nhiều như nó có thể cảm thấy theo cách đó.
+
+Tôi cũng đã đi đến tin vào sự hoàn toàn và tuyệt đối không đáng kể của bản thân, và tôi nghĩ rằng điều đó giúp ích rất nhiều. Ví dụ, nếu bạn nghĩ rằng bạn là điều quan trọng nhất trong Vũ trụ, thì bạn sẽ phải uốn cong toàn bộ Vũ trụ theo ý muốn của bạn. Nếu bạn là điều quan trọng nhất trong Vũ trụ, thì làm thế nào nó có thể không phù hợp với mong muốn của bạn. Nếu nó không phù hợp với mong muốn của bạn, có gì đó sai.
+
+Tuy nhiên, nếu bạn xem bản thân mình như một vi khuẩn hoặc một con amip - hoặc nếu bạn xem tất cả các tác phẩm của bạn như viết trên nước hoặc xây dựng lâu đài trên cát, thì bạn không có kỳ vọng về việc cuộc sống "thực sự" nên như thế nào. Cuộc sống chỉ là cách nó là. Khi bạn chấp nhận điều đó, bạn không có lý do gì để hạnh phúc hay bất hạnh. Những điều đó hầu như không áp dụng.
+
+Hạnh phúc là những gì ở đó khi bạn loại bỏ cảm giác rằng có điều gì đó thiếu trong cuộc sống của bạn.
+
+Những gì bạn còn lại với trong trạng thái trung lập đó không phải là sự trung lập. Tôi nghĩ mọi người tin rằng sự trung lập sẽ là một sự tồn tại rất nhạt nhẽo. Không, đây là sự tồn tại mà trẻ nhỏ sống. Nếu bạn nhìn vào trẻ nhỏ, nói chung, chúng khá hạnh phúc bởi vì chúng thực sự đắm mình trong môi trường và khoảnh khắc,
+
+mà không có bất kỳ suy nghĩ nào về cách nó nên được trao cho những sở thích và ham muốn cá nhân của chúng. Tôi nghĩ rằng trạng thái trung lập thực sự là một trạng thái hoàn hảo. Một người có thể rất hạnh phúc miễn là một người không quá bị cuốn vào trong đầu của riêng họ. [4]
+
+Cuộc sống của chúng ta là một cái nháy mắt của một con đom đóm trong đêm. Bạn chỉ vừa mới ở đây. Bạn phải tận dụng tối đa mọi phút giây, điều đó không có nghĩa là bạn theo đuổi một ham muốn ngu ngốc cho cả cuộc đời bạn. Những gì nó có nghĩa là mọi giây bạn có trên hành tinh này là rất quý giá, và đó là trách nhiệm của bạn để đảm bảo bạn hạnh phúc và giải thích mọi thứ theo cách tốt nhất có thể. [9]
+
+Chúng ta nghĩ về bản thân mình như cố định và thế giới như dễ uốn, nhưng thực sự chính chúng ta là dễ uốn và thế giới phần lớn là cố định.
+
+Thực hành thiền có giúp bạn chấp nhận thực tế không?
+
+Vâng. Nhưng thật đáng kinh ngạc ít nó giúp. [cười] Bạn có thể là một người thiền lâu năm, nhưng nếu ai đó nói điều sai trái theo cách sai trái, bạn quay trở lại bản thân do bản ngã thúc đẩy của bạn. Nó gần như bạn đang nâng tạ một pound, nhưng sau đó ai đó thả một quả tạ khổng lồ với một chồng đĩa lên đầu bạn.
+
+Nó chắc chắn tốt hơn là không làm gì. Nhưng khi khoảnh khắc thực tế của đau khổ tinh thần hoặc cảm xúc đến, nó vẫn không bao giờ dễ dàng. [8] Hạnh phúc thực sự chỉ đến như một tác dụng phụ của hòa bình. Hầu hết nó sẽ đến từ sự chấp nhận, không phải từ việc thay đổi môi trường bên ngoài của bạn. [8]
+
+Một người lý trí có thể tìm thấy hòa bình bằng cách trau dồi sự thờ ơ đối với những thứ bên ngoài tầm kiểm soát của họ.
+
+Tôi đã hạ thấp bản sắc của mình.
+
+Tôi đã hạ thấp sự trò chuyện của tâm trí của tôi.
+
+Tôi không quan tâm về những điều mà thực sự không quan trọng.
+
+Tôi không tham gia vào chính trị.
+
+Tôi không đi chơi xung quanh những người không hạnh phúc.
+
+Tôi thực sự đánh giá cao thời gian của tôi trên trái đất này.
+
+Tôi đọc triết học.
+
+Tôi thiền định.
+
+Tôi đi chơi xung quanh những người hạnh phúc.
+
+Và nó hoạt động.
+
+Bạn có thể rất từ từ nhưng ổn định và có phương pháp cải thiện cơ sở hạnh phúc của bạn, giống như bạn có thể cải thiện thể lực của bạn. [10]
+
+---
+
+**CHƯƠNG 17: HẠNH PHÚC LÀ MỘT SỰ LỰA CHỌN**
+
+Hạnh phúc, tình yêu và đam mê… không phải là những thứ bạn tìm thấy—chúng là những lựa chọn bạn thực hiện.
