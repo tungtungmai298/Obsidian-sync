@@ -1389,5 +1389,31 @@ Một điều khác: tinh thần, tôn giáo, Phật giáo hoặc bất cứ đi
 
 Bạn về cơ bản là một bó DNA mà phản ứng với các hiệu ứng môi trường khi bạn còn trẻ hơn. Bạn đã ghi lại những kinh nghiệm tốt và xấu, và bạn sử dụng chúng để đánh giá trước mọi thứ ném chống lại bạn. Sau đó, bạn đang sử dụng những kinh nghiệm đó, liên tục cố gắng và dự đoán và thay đổi tương lai.
 
-Khi bạn già đi, tổng số các sở thích bạn đã tích lũy được là rất, rất lớn. Những phản ứng theo thói quen này kết thúc như những đoàn tàu hàng rời bỏ kiểm soát kiểm soát tâm trạng của bạn. Chúng ta nên kiểm soát tâm trạng của riêng mình. Tại sao chúng ta không nghiên cứu làm thế nào để kiểm soát tâm trạng của chúng ta? Điều gì một điều khéo léo nó sẽ là nếu bạn có thể nói, "Ngay bây giờ tôi muốn được trong trạng thái tò mò," và sau đó bạn có thể thực sự nhận được bản thân vào trạng thái tò mò. Hoặc nói, "Tôi muốn được trong một trạng thái tang tóc. Tôi đang tang tóc một người thân yêu, và tôi muốn
+Khi bạn già đi, tổng số các sở thích bạn đã tích lũy được là rất, rất lớn. Những phản ứng theo thói quen này kết thúc như những đoàn tàu hàng rời bỏ kiểm soát kiểm soát tâm trạng của bạn. Chúng ta nên kiểm soát tâm trạng của riêng mình. Tại sao chúng ta không nghiên cứu làm thế nào để kiểm soát tâm trạng của chúng ta? Điều gì một điều khéo léo nó sẽ là nếu bạn có thể nói, "Ngay bây giờ tôi muốn được trong trạng thái tò mò," và sau đó bạn có thể thực sự nhận được bản thân vào trạng thái tò mò. Hoặc nói, "Tôi muốn được trong một trạng thái tang tóc. Tôi đang tang tóc một người thân yêu, và tôi muốn đau buồn cho họ. Tôi thực sự muốn cảm thấy điều đó. Tôi không muốn bị xao nhãng bởi một vấn đề lập trình máy tính do vào ngày mai."
+
+Tâm trí bản thân nó là một cơ bắp - nó có thể được đào tạo và điều hòa. Nó đã được điều kiện một cách ngẫu nhiên bởi xã hội để ra khỏi tầm kiểm soát của chúng ta. Nếu bạn nhìn vào tâm trí của bạn với nhận thức và ý định (một công việc 24/7 bạn đang làm việc tại mọi thời điểm!) Tôi nghĩ bạn có thể giải nén tâm trí của riêng bạn, cảm xúc, suy nghĩ và phản ứng của bạn. Sau đó, bạn có thể bắt đầu cấu hình lại. Bạn có thể bắt đầu viết lại chương trình này cho những gì bạn muốn. [4]
+
+Thiền là tắt xã hội và lắng nghe bản thân.
+
+Nó chỉ "hoạt động" khi được thực hiện vì lợi ích riêng của nó.
+
+Đi bộ đường dài là thiền đi bộ.
+
+Viết nhật ký là thiền viết.
+
+Cầu nguyện là thiền biết ơn.
+
+Tắm vòi sen là thiền tình cờ.
+
+Ngồi lặng lẽ là thiền trực tiếp.
+
+---
+
+**PHẦN 21: CHỌN XÂY DỰNG BẢN THÂN**
+
+Sức mạnh siêu phàm lớn nhất là khả năng thay đổi bản thân.
+
+Điều sai lầm lớn nhất bạn đã thực hiện trong cuộc đời bạn là gì và làm thế nào bạn đã phục hồi?
+
+Tôi đã tạo ra một lớp học sai lầm, tôi sẽ tóm tắt cùng một cách.
 
