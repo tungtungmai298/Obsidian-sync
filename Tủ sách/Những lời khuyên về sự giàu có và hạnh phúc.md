@@ -3,8 +3,7 @@
 
 **NHẬT KÝ CỦA NAVAL RAVIKANT**
 
-Thật lạ lùng khi tôi viết những dòng này, vì tôi đã cam kết  
-nhiều năm trước để không bao giờ viết lời tựa.  
+Thật lạ lùng khi tôi viết những dòng này, vì tôi đã cam kết nhiều năm trước để không bao giờ viết lời tựa.  
 Tôi đang tạo một ngoại lệ hiếm hoi trong trường hợp này vì ba lý do. Đầu tiên,  
 một phiên bản miễn phí của cuốn sách này đang được cung cấp cho thế giới trong một  
 định dạng kỹ thuật số / Kindle / eBook không kèm theo bất kỳ điều kiện nào. Thứ hai,  
