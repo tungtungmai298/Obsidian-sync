@@ -1439,4 +1439,44 @@ Khi chúng ta già hơn, chúng ta là một bộ sưu tập của hàng ngàn t
 
 Điều này đã dạy cho tôi sức mạnh của thói quen. Tôi bắt đầu nhận ra đó là tất cả về thói quen. Tại bất kỳ thời điểm nhất định, tôi hoặc đang cố gắng để nhặt một thói quen tốt hoặc loại bỏ một thói quen xấu trước đó. Phải mất thời gian.
 
-Nếu ai đó nói, "Tôi muốn được phù hợp, tôi muốn được khỏe mạnh. Ngay bây giờ, tôi không cân đối và tôi béo." Chà, không có gì bền vững sẽ làm việc cho bạn trong ba tháng. Nó sẽ là ít nhất
+Nếu ai đó nói, "Tôi muốn được phù hợp, tôi muốn được khỏe mạnh. Ngay bây giờ, tôi không cân đối và tôi béo." Chà, không có gì bền vững sẽ làm việc cho bạn trong ba tháng. Nó sẽ là ít nhất một hành trình mười năm. Mỗi sáu tháng (tùy thuộc vào nhanh như thế nào
+
+bạn có thể làm điều đó), bạn sẽ phá vỡ những thói quen xấu và nhặt những thói quen tốt. [6]
+
+Một trong những điều Krishnamurti nói về là ở trong một trạng thái cách mạng nội bộ. Bạn nên luôn luôn được nội bộ sẵn sàng cho một sự thay đổi hoàn toàn. Bất cứ khi nào chúng ta nói chúng ta sẽ cố gắng làm một cái gì đó hoặc cố gắng hình thành một thói quen, chúng ta đang làm suy yếu.
+
+Chúng ta chỉ đang nói với chính mình, "Tôi sẽ mua cho mình nhiều thời gian hơn." Thực tế là khi cảm xúc của chúng ta muốn chúng ta làm một cái gì đó, chúng ta chỉ làm điều đó. Nếu bạn muốn tiếp cận một cô gái xinh đẹp, nếu bạn muốn có một thức uống, nếu bạn thực sự mong muốn một cái gì đó, bạn chỉ đi làm điều đó.
+
+Khi bạn nói, "Tôi sẽ làm điều này" và "Tôi sẽ là điều đó," bạn thực sự đang trì hoãn nó. Bạn đang cho bản thân một lối thoát. Ít nhất nếu bạn tự nhận thức, bạn có thể nghĩ, "" Tôi nói tôi muốn làm điều này, nhưng tôi không thực sự bởi vì nếu tôi thực sự muốn làm điều đó, tôi sẽ chỉ làm điều đó."
+
+Cam kết bên ngoài đủ cho mọi người. Ví dụ, nếu bạn muốn bỏ hút thuốc, tất cả bạn phải làm là đi đến tất cả mọi người bạn biết và nói, "Tôi bỏ hút thuốc. Tôi đã làm điều đó. Tôi cho bạn lời của tôi."
+
+Đó là tất cả bạn cần làm. Tiến lên, phải không? Nhưng hầu hết chúng ta nói chúng ta không hoàn toàn sẵn sàng. Chúng ta biết chúng ta không muốn cam kết bản thân bên ngoài. Điều quan trọng là phải trung thực với bản thân và nói, "Được rồi, tôi không sẵn sàng để bỏ hút thuốc. Tôi thích nó quá nhiều, nó sẽ quá khó khăn cho tôi để từ bỏ."
+
+Nói thay vì, "Tôi sẽ thiết lập một mục tiêu hợp lý hơn cho bản thân; Tôi sẽ cắt giảm xuống số lượng sau. Tôi có thể cam kết với điều đó bên ngoài. Tôi sẽ làm việc về điều đó trong ba hoặc sáu tháng. Khi tôi nhận
+
+đến đó, tôi sẽ có bước tiếp theo, trái ngược với việc đánh đập bản thân."
+
+Khi bạn thực sự muốn thay đổi, bạn chỉ thay đổi. Nhưng hầu hết chúng ta không thực sự muốn thay đổi - chúng ta không muốn đi qua những đau đớn chỉ cần. Ít nhất nhận ra nó, được nhận thức về nó, và cung cấp cho bản thân một sự thay đổi nhỏ hơn bạn thực sự có thể thực hiện. [6]
+
+Sốt ruột với hành động, kiên nhẫn với kết quả.
+
+Bất cứ điều gì bạn phải làm, chỉ cần làm cho nó hoàn thành. Tại sao chờ đợi? Bạn không nhận được bất kỳ trẻ hơn. Cuộc sống của bạn đang trượt đi. Bạn không muốn chi tiêu nó chờ đợi trong dòng. Bạn không muốn chi tiêu nó đi du lịch qua lại. Bạn không muốn chi tiêu nó làm những điều bạn biết cuối cùng không phải là một phần của nhiệm vụ của bạn.
+
+Khi bạn làm chúng, bạn muốn làm cho chúng hoàn thành càng nhanh càng tốt trong khi làm chúng tốt với sự chú ý đầy đủ của bạn. Nhưng sau đó, bạn chỉ cần phải kiên nhẫn với kết quả bởi vì bạn đang đối phó với các hệ thống phức tạp và nhiều người.
+
+Cần một thời gian dài cho thị trường để áp dụng các sản phẩm. Phải mất thời gian cho mọi người để cảm thấy thoải mái làm việc với nhau. Phải mất thời gian cho các sản phẩm tuyệt vời để nổi lên như bạn đánh bóng đi, đánh bóng đi, đánh bóng đi. Sốt ruột với hành động, kiên nhẫn với kết quả. Như Nivi nói, cảm hứng là dễ hỏng. Khi bạn có cảm hứng, hành động vào nó ngay sau đó và có. [78]
+
+---
+
+**CHƯƠNG 22: CHỌN ĐỂ LỚN BẢN THÂN**
+
+Tôi không tin vào các mục tiêu cụ thể. Scott Adams nổi tiếng nói, "Thiết lập hệ thống, không phải mục tiêu." Sử dụng phán đoán của bạn để tìm ra những gì các loại môi trường bạn có thể phát triển trong, và sau đó tạo ra một môi trường xung quanh bạn để bạn có khả năng thống kê thành công.
+
+Môi trường hiện tại chương trình não, nhưng bộ não thông minh có thể chọn môi trường sắp tới của nó.
+
+Tôi sẽ không phải là người thành công nhất trên hành tinh, cũng không phải là tôi muốn được. Tôi chỉ muốn là phiên bản thành công nhất của bản thân trong khi làm việc ít khó khăn nhất có thể. Tôi muốn sống theo một cách mà nếu cuộc sống của tôi đã chơi ra 1.000 lần, Naval là thành công 999 lần. Anh ấy không phải là một tỷ phú, nhưng anh ấy làm khá tốt mỗi lần. Anh ấy có thể không có cuộc sống гвоздей trong mọi khía cạnh, nhưng anh ấy thiết lập các hệ thống để anh ấy đã thất bại trong rất ít nơi. [4]
+
+---
+
+**CHƯƠNG 23: CHỌN
