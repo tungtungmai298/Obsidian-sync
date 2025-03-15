@@ -775,6 +775,7 @@ Tìm ra những gì bạn giỏi và bắt đầu giúp đỡ những người k
 
 Một ông chủ cũ đã từng cảnh báo: "Bạn sẽ không bao giờ giàu có vì bạn rõ ràng là thông minh, và ai đó sẽ luôn đề nghị bạn một công việc mà chỉ đủ tốt."
 
+
 **CHƯƠNG 14: TÌM CÔNG VIỆC MÀ CẢM THẤY NHƯ CHƠI**
 
 Làm thế nào bạn quyết định thành lập công ty đầu tiên của bạn?
