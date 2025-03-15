@@ -1307,5 +1307,5 @@ Bạn có một thực hành thiền hiện tại?
 
 Tôi nghĩ rằng thiền là như ăn kiêng, nơi mọi người được cho là đang tuân theo một chế độ. Mọi người đều nói họ làm điều đó, nhưng không ai thực sự làm điều đó. Bộ người thực sự thiền định trên cơ sở thường xuyên, tôi đã thấy, là khá hiếm. Tôi đã xác định và cố gắng ít nhất bốn hình thức thiền khác nhau.
 
-Một tôi tìm thấy hoạt động tốt nhất cho tôi được gọi là Ý thức Không Chọn Lựa, hoặc Ý thức Không Phán Xét. Khi bạn đang đi về kinh doanh hàng ngày của bạn (hy vọng, có một số
+Một tôi tìm thấy hoạt động tốt nhất cho tôi được gọi là Ý thức Không Chọn Lựa, hoặc Ý thức Không Phán Xét. Khi bạn đang đi về kinh doanh hàng ngày của bạn (hy vọng, có một số 
 
