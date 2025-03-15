@@ -1343,3 +1343,43 @@ Thiền là không khó. Tất cả bạn phải làm là ngồi đó và không
 
 "Nếu những suy nghĩ đến, những suy nghĩ đến. Tôi sẽ không chiến đấu với chúng.
 
+Tôi sẽ không ôm chúng. Tôi sẽ không nghĩ khó khăn hơn về chúng. Tôi sẽ không từ chối chúng. Tôi chỉ sẽ ngồi đây trong một giờ với đôi mắt nhắm nghiền của tôi, và tôi sẽ không làm
+
+gì cả." Điều đó khó khăn như thế nào? Tại sao bạn không thể làm bất cứ điều gì cho một giờ? Có gì khó khăn về việc cho bản thân một giờ dài nghỉ ngơi? [74]
+
+Có một khoảnh khắc bạn nhận ra bạn có thể kiểm soát cách bạn giải thích mọi thứ không? Tôi nghĩ một vấn đề mọi người có là không nhận ra họ có thể kiểm soát cách họ giải thích và phản ứng với một tình huống.
+
+Tôi nghĩ rằng mọi người đều biết điều đó có thể. Có một bài giảng Osho tuyệt vời, có tựa đề "Sự hấp dẫn cho Ma túy là Tâm linh." Anh ấy nói về lý do tại sao mọi người sử dụng ma túy (mọi thứ từ rượu đến thuốc gây ảo giác đến cần sa). Họ đang làm điều đó để kiểm soát trạng thái tinh thần của họ. Họ đang làm điều đó để kiểm soát cách họ phản ứng. Một số người uống rượu vì nó giúp họ không quan tâm nhiều, hoặc họ là những người hút cần sa bởi vì họ có thể tắt nó đi, hoặc họ làm thuốc gây ảo giác để cảm thấy rất hiện diện hoặc kết nối với thiên nhiên. Sự hấp dẫn của ma túy là tâm linh.
+
+Tất cả xã hội làm điều này ở một mức độ nào đó. Mọi người đuổi theo những cảm giác mạnh trong các môn thể thao hành động hoặc trạng thái dòng chảy hoặc cực khoái - bất kỳ trạng thái nào trong số này mọi người phấn đấu để là những người đang cố gắng để ra khỏi đầu của riêng họ. Họ đang cố gắng để thoát khỏi giọng nói trong đầu của họ - ý thức quá phát triển của bản thân.
+
+Ít nhất, tôi không muốn ý thức về bản thân tôi tiếp tục phát triển và củng cố khi tôi già đi. Tôi muốn nó yếu hơn và im lặng hơn để tôi có thể có mặt nhiều hơn trong thực tế hàng ngày, chấp nhận thiên nhiên và thế giới cho những gì nó là, và đánh giá cao nó rất nhiều như một đứa trẻ sẽ. [4]
+
+Điều đầu tiên để nhận ra là bạn có thể quan sát trạng thái tinh thần của bạn. Thiền định không có nghĩa là bạn đột nhiên sẽ đạt được khả năng
+
+siêu năng lực để kiểm soát trạng thái bên trong của bạn. Ưu điểm của thiền là nhận ra chỉ là làm thế nào ra khỏi kiểm soát tâm trí của bạn là. Nó giống như một con khỉ ném phân, chạy xung quanh phòng, gây rắc rối, la hét và phá vỡ mọi thứ. Nó hoàn toàn không thể kiểm soát được. Nó là một kẻ điên mất kiểm soát.
+
+Bạn phải xem sinh vật điên này trong hoạt động trước khi bạn cảm thấy một sự ghê tởm nhất định đối với nó và bắt đầu tách bản thân bạn ra khỏi nó. Trong sự tách biệt đó là sự giải phóng. Bạn nhận ra, "Ồ, tôi không muốn là người đó. Tại sao tôi lại mất kiểm soát như vậy?" Nhận thức một mình làm dịu bạn xuống. [4]
+
+Thiền sâu sắc cho phép bạn chạy não của bạn trong chế độ gỡ lỗi cho đến khi bạn nhận ra bạn chỉ là một chương trình con trong một chương trình lớn hơn.
+
+Tôi cố gắng để giữ một mắt trên độc thoại nội bộ của tôi. Nó không phải luôn luôn hoạt động. Trong ý nghĩa lập trình máy tính, tôi cố gắng để chạy bộ não của tôi trong "chế độ gỡ lỗi" càng nhiều càng tốt. Khi tôi đang nói chuyện với ai đó, hoặc khi tôi đang tham gia vào một hoạt động nhóm, nó gần như là không thể bởi vì bộ não của bạn có quá nhiều điều để xử lý. Nếu tôi một mình, như vừa sáng nay, tôi đang đánh răng và tôi bắt đầu suy nghĩ về phía trước đến một podcast. Tôi bắt đầu đi qua tưởng tượng nhỏ này nơi tôi tưởng tượng Shane hỏi tôi một loạt các câu hỏi và tôi đã tưởng tượng - trả lời chúng. Sau đó, tôi bắt gặp bản thân mình. Tôi đặt bộ não của tôi trong chế độ gỡ lỗi và chỉ xem mọi hướng dẫn nhỏ đi qua.
+
+Tôi nói, "Tại sao tôi lại lập kế hoạch cho tương lai tưởng tượng? Tại sao tôi không thể chỉ đứng đây và đánh răng của tôi?" Đó là sự nhận thức bộ não của tôi đã chạy khỏi trong tương lai và lập kế hoạch một số kịch bản tưởng tượng ra khỏi bản ngã. Tôi đã kiểu, "Chà, tôi có thực sự quan tâm nếu tôi làm lúng túng
+
+mình? Ai quan tâm? Tôi sẽ chết anyway. Điều này là tất cả sẽ đi đến không, và tôi sẽ không nhớ bất cứ điều gì, vì vậy điều này là vô nghĩa."
+
+Sau đó, tôi tắt, và tôi đã trở lại để đánh răng của tôi. Tôi đã nhận thấy bàn chải đánh răng tốt như thế nào và nó cảm thấy tốt như thế nào. Sau đó, khoảnh khắc tiếp theo, tôi đang tắt đến suy nghĩ một cái gì đó khác. Tôi phải nhìn vào bộ não của tôi một lần nữa và nói, "Tôi có thực sự cần phải giải quyết vấn đề này ngay bây giờ không?"
+
+Chín mươi lăm phần trăm những gì bộ não của tôi chạy tắt và cố gắng để làm, tôi không cần phải giải quyết trong thời điểm đó. Nếu bộ não giống như một cơ bắp, tôi sẽ tốt hơn khi nghỉ ngơi nó, là bình yên. Khi một vấn đề cụ thể phát sinh, tôi sẽ đắm mình trong nó.
+
+Ngay bây giờ khi chúng ta đang nói chuyện, tôi thà cống hiến bản thân để được hoàn toàn lạc trong cuộc trò chuyện và đến được 100 phần trăm tập trung vào điều này trái ngược với suy nghĩ về "Ồ, khi tôi đánh răng của tôi, tôi đã làm điều đó đúng cách?"
+
+Khả năng tập trung độc đáo có liên quan đến khả năng để mất bạn—làm và hiện diện, và (trớ trêu thay) hiệu quả hơn. [4]
+
+Nó gần như bạn đang lấy bản thân ra khỏi một khung nhất định và bạn đang xem những thứ từ một quan điểm khác nhau ngay cả khi bạn đang ở trong tâm trí của riêng bạn.
+
+Phật tử nói về nhận thức so với bản ngã. Họ thực sự đang nói về làm thế nào bạn có thể nghĩ về bộ não của bạn, ý thức của bạn, như một cơ chế nhiều lớp. Có một lõi cơ sở, hệ điều hành cấp hạt nhân đang chạy. Sau đó, có những ứng dụng đang chạy trên đầu. (Tôi thích nghĩ về nó như máy tính và nói chuyện mọt sách.)
+
+Tôi thực sự đang quay trở lại mức độ nhận thức của tôi của
+
