@@ -228,7 +228,7 @@ Live, on Twitter, it's Naval (applause ensues...)
 **PHẦN I: GIÀU CÓ**
 
 Làm thế nào để trở nên giàu có mà không cần may mắn.
-Tuyệt vời! Tiếp tục dịch nhé:
+
 
 **CHƯƠNG 5: XÂY DỰNG SỰ GIÀU CÓ**
 
