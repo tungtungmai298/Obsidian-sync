@@ -1485,7 +1485,6 @@ Tôi sẽ không phải là người thành công nhất trên hành tinh, cũng
 
 Hãy nhận biết không có "người lớn." Mọi người đều làm cho nó như họ đi cùng. Bạn phải tìm thấy con đường riêng của bạn, chọn, chọn và loại bỏ khi bạn thấy phù hợp. Tìm ra nó cho chính mình, và làm điều đó. [71]
 
-Gần hết rồi bạn nha! Chỉ còn trang 233, 234, 235, 236, 237, 238, 239 và 241 thôi. Tôi tiếp tục dịch nhé:
 
 ---
 
