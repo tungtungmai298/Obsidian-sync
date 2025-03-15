@@ -1242,5 +1242,46 @@ Thói quen nào bạn sẽ nói rằng ảnh hưởng tích cực nhất đến 
 
 Các tập luyện buổi sáng hàng ngày. Điều đó đã là một trò chơi thay đổi hoàn toàn. Nó đã làm cho tôi cảm thấy khỏe mạnh hơn, trẻ hơn. Nó đã làm cho tôi không đi chơi muộn. Nó đến từ một điều đơn giản, mà mọi người đều nói, "Tôi không có thời gian." Về cơ bản, bất cứ khi nào bạn ném bất kỳ thói quen tốt nào được gọi là ai đó, họ sẽ có một cái cớ cho chính họ. Thông thường, phổ biến nhất là "Tôi không có thời gian." "Tôi không có thời gian" chỉ là một cách khác để nói "Đó không phải là một ưu tiên." Những gì bạn thực sự phải làm là nói liệu nó có phải là một ưu tiên hay không. Nếu một cái gì đó là ưu tiên số một của bạn, thì bạn sẽ làm điều đó. Đó chỉ là cách cuộc sống hoạt động. Nếu bạn có một giỏ mơ hồ của mười hoặc mười lăm ưu tiên khác nhau, bạn sẽ kết thúc không nhận được bất kỳ chúng.
 
-Những gì tôi đã làm là quyết định ưu tiên số một của tôi trong cuộc sống, trên cả hạnh phúc của tôi, trên cả gia đình tôi, trên cả công việc của tôi, là sức khỏe của chính tôi. [4] Bởi vì sức khỏe thể chất của tôi đã trở thành ưu tiên số một của tôi, sau đó tôi không bao giờ có thể nói tôi không có thời gian. Vào buổi sáng, tôi tập luyện, và tuy nhiên dài nó diễn ra là bao lâu nó diễn ra. Tôi không bắt đầu ngày của tôi cho đến khi tôi đã tập luyện. Tôi không quan tâm nếu thế giới đang tan vỡ và tan chảy 
+Những gì tôi đã làm là quyết định ưu tiên số một của tôi trong cuộc sống, trên cả hạnh phúc của tôi, trên cả gia đình tôi, trên cả công việc của tôi, là sức khỏe của chính tôi. [4] Bởi vì sức khỏe thể chất của tôi đã trở thành ưu tiên số một của tôi, sau đó tôi không bao giờ có thể nói tôi không có thời gian. Vào buổi sáng, tôi tập luyện, và tuy nhiên dài nó diễn ra là bao lâu nó diễn ra. Tôi không bắt đầu ngày của tôi cho đến khi tôi đã tập luyện. Tôi không quan tâm nếu thế giới đang tan vỡ và tan chảy nó có thể chờ đợi ba mươi phút khác cho đến khi tôi đã tập luyện xong.
+
+Nó khá nhiều mỗi ngày. Có một vài ngày mà tôi đã phải nghỉ ngơi vì tôi đang đi du lịch, hoặc tôi bị thương hoặc bị bệnh hoặc một cái gì đó. Tôi có thể đếm trên một tay số lượng nghỉ tôi thực hiện mỗi năm. [4]
+
+Một tháng tập yoga nhất quán và tôi cảm thấy trẻ hơn 10 tuổi. Để giữ linh hoạt là để giữ trẻ.
+
+Làm thế nào bạn thực hiện một thói quen không quan trọng. Làm một cái gì đó mỗi ngày. Gần như không quan trọng bạn làm gì. Những người đang ám ảnh về việc có nên tập luyện trọng lượng, quần vợt, Pilates, phương pháp tập luyện khoảng thời gian cường độ cao, "The Happy Body," hoặc bất cứ điều gì. Họ đang bỏ lỡ điểm. Điều quan trọng là phải làm một cái gì đó mỗi ngày. Không quan trọng những gì nó là. Tập luyện tốt nhất cho bạn là một bạn đang đủ hào hứng để làm mỗi ngày. [4]
+
+Đi bộ họp:
+
+• Bộ não hoạt động tốt hơn  
+• Tập thể dục & ánh sáng mặt trời  
+• Ngắn hơn, ít dễ chịu hơn  
+• Nhiều đối thoại hơn, ít độc thoại hơn  
+• Không có slide  
+• Kết thúc dễ dàng bằng cách đi bộ trở lại
+
+Giống như mọi thứ trong cuộc sống, nếu bạn sẵn sàng thực hiện sự hy sinh ngắn hạn, bạn sẽ có lợi ích lâu dài. Huấn luyện viên thể chất của tôi
+
+(Jerzy Gregorek) thực sự là một anh chàng khôn ngoan, rực rỡ. Anh ấy luôn nói, "Lựa chọn dễ dàng, cuộc sống khó khăn. Lựa chọn khó khăn, cuộc sống dễ dàng."
+
+Về cơ bản, nếu bạn đang thực hiện những lựa chọn khó khăn ngay bây giờ trong những gì để ăn, bạn không ăn tất cả các thực phẩm rác bạn muốn và thực hiện sự lựa chọn khó khăn để tập luyện. Vì vậy, cuộc sống lâu dài của bạn sẽ dễ dàng. Bạn sẽ không bị bệnh. Bạn sẽ không không khỏe mạnh. Điều tương tự là đúng về các giá trị. Điều tương tự là đúng về tiết kiệm cho một ngày mưa. Điều tương tự là đúng về cách bạn tiếp cận các mối quan hệ của bạn. Nếu bạn thực hiện những lựa chọn dễ dàng ngay bây giờ, cuộc sống tổng thể của bạn sẽ là
+
+khó khăn hơn nhiều. [4]
+
+---
+
+**CHƯƠNG 20: THIỀN + SỨC MẠNH TINH THẦN**
+
+Một cảm xúc là sinh học tiến hóa của chúng ta dự đoán tác động trong tương lai của một sự kiện hiện tại. Trong cài đặt hiện đại, nó thường bị phóng đại hoặc sai.
+
+Tại sao thiền lại mạnh mẽ như vậy?
+
+Hơi thở của bạn là một trong số ít những nơi mà hệ thần kinh tự chủ của bạn đáp ứng hệ thần kinh tự nguyện của bạn. Nó là không tự nguyện, nhưng bạn cũng có thể kiểm soát nó.
+
+Tôi nghĩ rằng rất nhiều thực hành thiền định đặt trọng tâm vào hơi thở bởi vì nó là một cửa ngõ vào hệ thần kinh tự chủ của bạn. Có rất nhiều, rất nhiều trường hợp trong tài liệu y tế và tâm linh của những người kiểm soát cơ thể của họ ở các cấp độ đó nên tự chủ.
+
+Tâm trí của bạn là một điều mạnh mẽ như vậy. Điều gì là quá khác thường về bộ não trước của bạn gửi tín hiệu đến não sau của bạn và não sau của bạn định tuyến tài nguyên đến toàn bộ cơ thể của bạn?
+
+Bạn có thể làm điều đó chỉ bằng cách thở. Thở thư giãn nói với cơ thể bạn bạn an toàn. Sau đó, bộ não trước của bạn không cần nhiều tài nguyên như nó thường làm. Bây giờ, năng lượng thêm có thể được gửi đến não sau của bạn, và nó có thể định tuyến lại những tài nguyên đó cho phần còn lại của cơ thể bạn.
+
+Tôi không nói rằng bạn có thể đánh bại bất kỳ bệnh nào bạn chỉ vì bạn đã kích hoạt não sau của bạn. Nhưng bạn đang cống hiến hầu hết năng lượng thường cần thiết để chăm sóc về môi trường bên ngoài cho hệ thống miễn dịch.
 
