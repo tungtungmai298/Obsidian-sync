@@ -1548,46 +1548,4 @@ Hai là chọn và làm việc dựa trên các giá trị. Bỏ những hoạt 
 
 **PHẦN 22: TRIẾT HỌC**
 
-Những sự thật thực sự là dị giáo. Chúng không thể được nói. Chỉ được phát hiện, thì thầm và có lẽ đọc. **CHƯƠNG 25: TRIẾT LÝ**
-
-**Ý NGHĨA CỦA CUỘC SỐNG**
-
-Một câu hỏi lớn thực sự không giới hạn: ý nghĩa và mục đích của cuộc sống là gì?
-
-Đó là một câu hỏi lớn. Bởi vì đó là một câu hỏi lớn, tôi sẽ cho bạn ba câu trả lời.
-
-Câu trả lời 1: Nó là cá nhân. Bạn phải tìm ý nghĩa riêng của mình. Bất kỳ mảnh khôn ngoan nào bất kỳ ai khác cho bạn, cho dù đó là Đức Phật hay tôi, sẽ nghe có vẻ vô nghĩa. Về cơ bản, bạn phải tìm thấy nó cho chính mình, vì vậy phần quan trọng không phải là câu trả lời, đó là câu hỏi. Bạn chỉ phải ngồi đó và đào với câu hỏi. Nó có thể mất bạn nhiều năm hoặc nhiều thập kỷ. Khi bạn tìm thấy một câu trả lời bạn hạnh phúc với, nó sẽ là cơ bản cho cuộc sống của bạn.
-
-Câu trả lời 2: Không có ý nghĩa cho cuộc sống. Không có mục đích cho cuộc sống. Osho nói, "Nó giống như viết trên nước hoặc xây dựng những ngôi nhà cát." Thực tế là bạn đã chết cho lịch sử của Vũ trụ, 10 tỷ năm trở lên. Bạn sẽ chết cho 70 tỷ năm tới hoặc lâu hơn, cho đến khi cái chết nhiệt của Vũ trụ.
-
-Bất cứ điều gì bạn làm sẽ phai nhạt. Nó sẽ biến mất, giống như loài người sẽ biến mất và hành tinh sẽ biến mất. Ngay cả nhóm người thuộc địa hóa Sao Hỏa sẽ biến mất. Không ai sẽ nhớ bạn sau một số thế hệ nhất định, cho dù bạn là một nghệ sĩ, một nhà thơ, một người chinh phục, một người nghèo, hoặc bất kỳ ai khác. Không có ý nghĩa.
-
-Bạn phải tạo ý nghĩa riêng của bạn, đó là những gì nó sôi sục xuống. Bạn phải quyết định:
-
-"Đây có phải là một vở kịch tôi chỉ đang xem không?"
-
-"Có phải là một điệu nhảy tự hiện thực hóa tôi đang làm không?"
-
-"Có phải là một điều cụ thể tôi khao khát chỉ vì lợi ích của nó không?"
-
-Đây là tất cả những ý nghĩa bạn tạo ra.
-
-Không có ý nghĩa có mục đích, nội tại cơ bản cho Vũ trụ. Nếu có, thì bạn sẽ chỉ cần hỏi câu hỏi tiếp theo. Bạn sẽ nói, "Tại sao đó là ý nghĩa?" Nó sẽ là, như nhà vật lý Richard Feynman đã nói, nó sẽ là "rùa trên toàn bộ đường xuống." Các "tại sao" sẽ tiếp tục tích lũy. Không có câu trả lời bạn có thể cung cấp mà sẽ không có một "tại sao" khác.
-
-Tôi không mua câu trả lời cuộc sống sau khi bất diệt bởi vì nó là điên rồ đối với tôi, với hoàn toàn không có bằng chứng, để tin bởi vì cách bạn sống bảy mươi năm ở đây trên hành tinh này, bạn sẽ dành vĩnh cửu, đó là một thời gian rất dài, trong một số cuộc sống sau. Loại Chúa ngớ ngẩn nào đánh giá bạn cho vĩnh cửu dựa trên một giai đoạn thời gian nhỏ ở đây? Tôi nghĩ sau cuộc sống này, nó rất giống như trước khi bạn được sinh ra. Hãy nhớ điều đó? Nó sẽ được chỉ như thế.
-
-Trước khi bạn được sinh ra, bạn không quan tâm về bất cứ điều gì hoặc bất cứ ai, bao gồm cả những người thân yêu của bạn, bao gồm cả bản thân bạn, bao gồm cả con người, bao gồm cả việc chúng ta đi đến Sao Hỏa hay liệu chúng ta ở lại trên hành tinh Trái đất, cho dù có một AI hay không. Sau khi chết, bạn chỉ không quan tâm cả hai.
-
-Câu trả lời 3: Câu trả lời cuối cùng tôi sẽ cung cấp cho bạn là phức tạp hơn một chút. Từ những gì tôi đã đọc trong khoa học (bạn bè của tôi đã viết sách về điều này), tôi đã nối lại một số lý thuyết. Có lẽ có một ý nghĩa cho cuộc sống, nhưng nó không phải là một mục đích rất thỏa mãn.
-
-Về cơ bản, trong vật lý, mũi tên của thời gian đến từ entropy.
-
-Định luật thứ hai của nhiệt động lực học nói rằng entropy chỉ đi lên, điều đó có nghĩa là rối loạn trong Vũ trụ chỉ đi lên, điều đó có nghĩa là năng lượng tự do tập trung chỉ đi xuống. Nếu bạn nhìn vào những điều sống (con người, thực vật, nền văn minh, những gì bạn có) các hệ thống này đang đảo ngược entropy cục bộ. Con người đảo ngược entropy cục bộ bởi vì chúng ta có hành động.
-
-Trong quá trình này, chúng ta tăng tốc entropy toàn cầu cho đến khi cái chết nhiệt của Vũ trụ. Bạn có thể đưa ra một số lý thuyết lạ mắt, mà tôi thích, mà chúng ta đang hướng đến cái chết nhiệt của Vũ trụ. Trong cái chết đó, không có năng lượng tập trung, và mọi thứ là ở cùng một mức năng lượng. Vì vậy, chúng ta tất cả là một điều. Chúng ta về cơ bản không thể phân biệt được.
-
-Những gì chúng ta làm như các hệ thống sống tăng tốc nhận được trạng thái đó. Hệ thống phức tạp hơn bạn tạo ra, cho dù đó là thông qua máy tính, văn minh, nghệ thuật, toán học hoặc tạo ra một gia đình - bạn thực sự tăng tốc cái chết nhiệt của Vũ trụ. Bạn đang đẩy chúng ta hướng tới điểm này nơi chúng ta kết thúc như một điều.
-
----
-
-**CHƯƠNG 26: SỐNG BỞI
+Những sự thật thực sự là dị giáo. Chúng không thể được nói. Chỉ được phát hiện, thì thầm và có lẽ đọc. 
