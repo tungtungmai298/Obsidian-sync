@@ -878,3 +878,79 @@ Một số người thành công nhất tôi đã thấy ở Thung lũng Silicon
 **CHƯƠNG 14: LÀM THẾ NÀO ĐỂ CÓ ĐƯỢC MAY MẮN**
 
 Tại sao bạn nói, "Làm giàu mà không cần may mắn"?
+
+Trong 1.000 vũ trụ song song, bạn muốn giàu có trong 999 trong số đó. Bạn không muốn giàu có trong năm mươi trong số đó nơi bạn đã gặp may mắn, vì vậy chúng tôi muốn loại bỏ may mắn.
+
+Nhưng gặp may sẽ giúp, phải không?
+
+Gần đây, Babak Nivi, người đồng sáng lập của tôi, và tôi đã nói chuyện trên Twitter về cách một người gặp may mắn, và có thực sự bốn loại may mắn chúng ta đã nói về.
+
+Loại may mắn đầu tiên là may mắn mù quáng, nơi một người chỉ gặp may mắn vì một cái gì đó hoàn toàn nằm ngoài tầm kiểm soát của họ đã xảy ra. Điều này bao gồm vận may, định mệnh, v.v.
+
+Sau đó, có may mắn thông qua sự kiên trì, công việc khó khăn, sự hối hả và chuyển động. Đây là khi bạn đang chạy xung quanh tạo ra các cơ hội. Bạn đang tạo ra rất nhiều năng lượng, bạn đang làm rất nhiều để khuấy động mọi thứ. Nó gần giống như trộn một đĩa petri hoặc trộn một loạt các thuốc thử và xem những gì kết hợp. Bạn chỉ đang tạo ra đủ lực, sự hối hả và năng lượng để may mắn tìm thấy bạn.
+
+Một cách thứ ba là bạn trở nên rất giỏi trong việc phát hiện may mắn. Nếu bạn rất lành nghề trong một lĩnh vực, bạn sẽ nhận thấy khi một cơ hội may mắn xảy ra trong lĩnh vực của bạn, và những người khác không quen thuộc với nó sẽ không nhận thấy. Vì vậy, bạn trở nên nhạy cảm với may mắn.
+
+Loại may mắn cuối cùng là loại kỳ lạ nhất, khó khăn nhất, nơi bạn xây dựng một nhân vật độc đáo, một thương hiệu độc đáo, một tư duy độc đáo, điều đó khiến may mắn tìm thấy bạn.
+
+Ví dụ, giả sử bạn là người giỏi nhất trên thế giới về lặn biển sâu. Bạn được biết đến để đảm nhận các cuộc lặn biển sâu mà không ai khác thậm chí sẽ dám thử. Do may mắn thuần túy, ai đó
+
+tìm thấy một con tàu kho báu đắm ngoài khơi mà họ không thể đến được. Chà, may mắn của họ chỉ trở thành may mắn của bạn, bởi vì họ sẽ đến với bạn để đến được kho báu, và bạn sẽ được trả tiền cho nó.
+
+Đây là một ví dụ cực đoan, nhưng nó cho thấy làm thế nào một người đã có may mắn mù quáng tìm thấy kho báu. Việc họ đến với bạn để trích xuất nó và cho bạn một nửa không phải là may mắn mù quáng. Bạn đã tạo ra may mắn của riêng bạn. Bạn đặt mình vào một vị trí để tận dụng may mắn hoặc thu hút may mắn khi không ai khác tạo ra cơ hội cho chính họ. Để làm giàu mà không cần gặp may mắn, chúng ta muốn có tính quyết định. Chúng ta không muốn để nó cho cơ hội. [78]
+
+**Cách để gặp may mắn:**
+
+- Hy vọng may mắn tìm thấy bạn.
+    
+- Hối hả cho đến khi bạn vấp vào nó.
+    
+- Chuẩn bị tâm trí và nhạy cảm với những cơ hội mà người khác bỏ lỡ.
+    
+- Trở thành người giỏi nhất ở những gì bạn làm. Tinh chỉnh những gì bạn làm cho đến khi điều này là đúng. Cơ hội sẽ tìm kiếm bạn. May mắn trở thành số phận của bạn.
+    
+
+Nó bắt đầu trở nên có tính quyết định, nó ngừng là may mắn. Định nghĩa bắt đầu mờ dần từ may mắn sang số phận. Để tóm tắt loại thứ tư: xây dựng nhân vật của bạn theo một cách nhất định, sau đó nhân vật của bạn trở thành số phận của bạn.
+
+Một trong những điều tôi nghĩ là quan trọng để kiếm tiền là có một danh tiếng khiến mọi người thực hiện các giao dịch thông qua bạn. Hãy nhớ ví dụ về việc trở thành một thợ lặn tuyệt vời nơi những người săn kho báu sẽ đến và cho bạn một phần của kho báu cho kỹ năng lặn của bạn.
+
+Nếu bạn là một người đáng tin cậy, đáng tin cậy, có tính chính trực cao, suy nghĩ dài hạn, khi những người khác muốn thực hiện các giao dịch nhưng không biết làm thế nào để thực hiện chúng một cách đáng tin cậy với người lạ, họ sẽ thực sự tiếp cận bạn và cho bạn một phần của giao dịch chỉ vì tính chính trực và danh tiếng bạn đã xây dựng.
+
+Warren Buffett được cung cấp các giao dịch để mua các công ty, mua chứng quyền, giải cứu các ngân hàng và làm những việc người khác không thể làm bởi vì danh tiếng của anh ấy. Tất nhiên, anh ấy có trách nhiệm giải trình trên đường dây và anh ấy có một thương hiệu mạnh trên đường dây.
+
+Tính cách của bạn và danh tiếng của bạn là những thứ bạn có thể xây dựng, điều đó sẽ cho phép bạn tận dụng các cơ hội mà những người khác có thể mô tả là may mắn, nhưng bạn biết đó không phải là may mắn. [78]  
+Người đồng sáng lập của tôi Nivi nói, "Trong một trò chơi dài hạn, có vẻ như mọi người đang làm cho nhau giàu có. Và trong một trò chơi ngắn hạn, có vẻ như mọi người đang làm cho bản thân giàu có."
+
+Tôi nghĩ rằng đó là một công thức tuyệt vời. Trong một trò chơi dài hạn, nó là tổng dương. Tất cả chúng ta đang nướng chiếc bánh cùng nhau. Chúng ta đang cố gắng làm cho nó lớn nhất có thể. Và trong một trò chơi ngắn hạn, chúng ta đang cắt chiếc bánh. [78]
+
+Kết nối mạng quan trọng như thế nào?
+
+Tôi nghĩ rằng kết nối kinh doanh là một sự lãng phí thời gian hoàn toàn. Và tôi biết có những người và các công ty đang phổ biến khái niệm này bởi vì nó phục vụ họ và mô hình kinh doanh của họ tốt, nhưng thực tế là nếu bạn đang xây dựng một cái gì đó thú vị, bạn sẽ luôn có nhiều người muốn biết bạn. Cố gắng xây dựng các mối quan hệ kinh doanh trước khi kinh doanh là một sự lãng phí thời gian hoàn toàn. Tôi có một triết lý thoải mái hơn nhiều: "Hãy là một nhà sản xuất người tạo ra một cái gì đó thú vị
+
+mọi người muốn. Thể hiện nghề thủ công của bạn, thực hành nghề thủ công của bạn, và những người phù hợp cuối cùng sẽ tìm thấy bạn." [14]
+
+Và một khi bạn đã gặp ai đó, làm thế nào để bạn xác định liệu bạn có thể tin tưởng ai đó không? Những tín hiệu nào bạn chú ý?
+
+Nếu ai đó đang nói rất nhiều về việc họ trung thực như thế nào, họ có lẽ không trung thực. Đó chỉ là một chỉ số báo hiệu nhỏ tôi đã học được. Khi ai đó dành quá nhiều thời gian để nói về giá trị của riêng họ hoặc họ đang nói về bản thân họ, họ đang che đậy một cái gì đó. [4]
+
+Cá mập ăn ngon nhưng sống một cuộc sống bao quanh bởi cá mập.
+
+Tôi có những người tuyệt vời trong cuộc đời tôi cực kỳ thành công, rất đáng mong muốn (như mọi người muốn là bạn của họ), rất thông minh. Tuy nhiên, tôi đã thấy họ làm một hoặc hai điều hơi không tuyệt vời cho người khác. Lần đầu tiên, tôi sẽ nói, "Này, tôi không nghĩ bạn nên làm điều này cho người khác đó. Không phải vì bạn sẽ không thoát khỏi nó. Bạn sẽ thoát khỏi nó, nhưng bởi vì nó sẽ làm tổn thương bạn cuối cùng."
+
+Không phải theo một cách vũ trụ, nghiệp chướng nào đó, mà tôi tin sâu thẳm bên trong tất cả chúng ta biết chúng ta là ai. Bạn không thể che giấu bất cứ điều gì từ chính mình. Những thất bại của riêng bạn được viết trong tâm lý của bạn và chúng là hiển nhiên với bạn. Nếu bạn có quá nhiều trong số những thiếu sót đạo đức này, bạn sẽ không tôn trọng bản thân. Kết quả tồi tệ nhất trên thế giới này là không có lòng tự trọng. Nếu bạn không yêu bản thân, ai sẽ?
+
+Tôi nghĩ bạn chỉ cần phải rất cẩn thận về việc làm những điều bạn
+
+về cơ bản sẽ không tự hào, bởi vì họ sẽ làm tổn thương bạn. Lần đầu tiên ai đó hành động theo cách này, tôi sẽ cảnh báo họ. Nhân tiện, không ai thay đổi. Sau đó, tôi chỉ xa lánh bản thân khỏi họ. Tôi cắt chúng ra khỏi cuộc sống của tôi. Tôi chỉ có câu nói này trong đầu tôi: "Bạn càng muốn đến gần tôi, giá trị của bạn càng phải tốt hơn." [4]
+
+---
+
+**CHƯƠNG 15: HÃY KIÊN NHẪN**
+
+Cho tôi một đòn bẩy đủ dài
+
+VÀ MỘT NƠI ĐỂ ĐỨNG,
+
+VÀ TÔI SẼ DI CHUYỂN TRÁI ĐẤT.
+
+Một điều tôi phát hiện ra sau này trong cuộc sống là nói chung (ít nhất là trong kinh doanh công nghệ ở Thung lũng Silicon), những người giỏi có kết quả tuyệt vời. Bạn chỉ cần phải kiên nhẫn. Mỗi người tôi đã gặp vào đầu sự nghiệp của tôi hai mươi năm trước, nơi tôi nhìn họ và nói, "Wow, anh chàng hoặc cô gái đó siêu có khả năng - rất thông minh và tận tâm"... tất cả trong số họ, gần như không có ngoại lệ,
