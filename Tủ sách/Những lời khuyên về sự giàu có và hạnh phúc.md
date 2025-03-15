@@ -1484,3 +1484,69 @@ Tôi sẽ không phải là người thành công nhất trên hành tinh, cũng
 Điều khó khăn nhất là không làm những gì bạn muốn — đó là biết những gì bạn muốn.
 
 Hãy nhận biết không có "người lớn." Mọi người đều làm cho nó như họ đi cùng. Bạn phải tìm thấy con đường riêng của bạn, chọn, chọn và loại bỏ khi bạn thấy phù hợp. Tìm ra nó cho chính mình, và làm điều đó. [71]
+
+Gần hết rồi bạn nha! Chỉ còn trang 233, 234, 235, 236, 237, 238, 239 và 241 thôi. Tôi tiếp tục dịch nhé:
+
+---
+
+**CHƯƠNG 24: TỰ DO TỪ NHỮNG KỲ VỌNG**
+
+Tôi không đo lường hiệu quả của mình ở tất cả. Tôi không tin vào tự đo lường. Tôi cảm thấy như đây là một hình thức tự kỷ luật, tự trừng phạt và tự xung đột. [1]
+
+Nếu bạn làm tổn thương người khác bởi vì họ có những kỳ vọng về bạn, đó là vấn đề của họ. Nếu họ có một thỏa thuận với bạn, đó là vấn đề của bạn. Nhưng, nếu họ có một kỳ vọng về bạn, đó là hoàn toàn vấn đề của họ. Nó không có gì để làm với bạn. Họ sẽ có rất nhiều kỳ vọng ra khỏi cuộc sống. Càng sớm bạn có thể gạch bỏ những kỳ vọng của họ, càng tốt. [1]
+
+Can đảm không phải là lao vào một tổ súng máy. Can đảm là không quan tâm những gì người khác nghĩ.
+
+Bất cứ ai đã biết tôi trong một thời gian dài biết đặc điểm xác định của tôi là một sự kết hợp của việc rất thiếu kiên nhẫn và có chủ ý. Tôi không thích chờ đợi. Tôi ghét lãng phí thời gian. Tôi rất nổi tiếng vì thô lỗ tại các bữa tiệc, sự kiện, bữa tối, nơi khoảnh khắc tôi tìm ra nó là một sự lãng phí thời gian của tôi, tôi rời đi ngay lập tức.
+
+Đánh giá cao thời gian của bạn. Đó là tất cả bạn có. Nó quan trọng hơn tiền của bạn. Nó quan trọng hơn bạn bè của bạn. Nó quan trọng hơn bất cứ điều gì. Thời gian của bạn là tất cả bạn có. Đừng lãng phí thời gian của bạn.
+
+Điều này không có nghĩa là bạn không thể thư giãn. Miễn là bạn đang làm những gì bạn muốn, nó không phải là một sự lãng phí thời gian của bạn. Nhưng nếu bạn không dành thời gian của bạn làm những gì bạn muốn, và bạn không kiếm được, và bạn không học - những gì heck bạn đang làm?
+
+Đừng dành thời gian của bạn làm cho người khác hạnh phúc. Những người khác hạnh phúc là vấn đề của họ. Không phải vấn đề của bạn. Nếu bạn hạnh phúc, nó làm cho người khác hạnh phúc. Nếu bạn hạnh phúc, những người khác sẽ hỏi bạn làm thế nào bạn đã trở nên hạnh phúc và họ có thể học hỏi từ nó, nhưng bạn không chịu trách nhiệm cho việc làm cho người khác hạnh phúc. [10]
+
+**TỰ DO TỪ SỰ TỨC GIẬN**
+
+Tức giận là gì? Tức giận là một cách để báo hiệu mạnh mẽ nhất có thể cho bên kia bạn có khả năng bạo lực. Tức giận là một tiền thân của bạo lực.
+
+Quan sát khi bạn đang tức giận — tức giận là một sự mất kiểm soát trên tình hình. Tức giận là một hợp đồng bạn làm với chính mình để
+
+được trong sự hỗn loạn về thể chất và tinh thần và cảm xúc cho đến khi thực tế thay đổi. [1]
+
+Tức giận là hình phạt riêng của nó. Một người giận dữ cố gắng đẩy đầu của bạn dưới nước đang chết đuối cùng một lúc.
+
+**TỰ DO TỪ VIỆC LÀM THUÊ**
+
+Những người sống xa bên dưới phương tiện của họ tận hưởng một sự tự do mà những người bận rộn nâng cấp lối sống của họ không thể hiểu. [11]
+
+Một khi bạn đã thực sự kiểm soát vận mệnh của riêng bạn, cho dù tốt hơn hay tồi tệ hơn, bạn sẽ không bao giờ để ai đó khác nói với bạn phải làm gì. [11]
+
+Một hương vị của tự do có thể làm cho bạn không thể thuê.
+
+**TỰ DO TỪ SUY NGHĨ KHÔNG KIỂM SOÁT**
+
+Một thói quen lớn tôi đang làm việc trên là cố gắng để tắt "tâm trí khỉ" của tôi. Khi chúng ta là trẻ em, chúng ta là những tấm bảng khá trống. Chúng ta sống rất nhiều trong thời điểm. Về cơ bản chúng ta chỉ phản ứng với môi trường của chúng ta thông qua bản năng của chúng ta. Chúng ta sống trong những gì tôi gọi là "thế giới thực." Tuổi dậy thì là sự khởi đầu của ham muốn — lần đầu tiên bạn thực sự, thực sự muốn một cái gì đó và bạn bắt đầu lập kế hoạch tầm xa. Bạn bắt đầu suy nghĩ rất nhiều, xây dựng một bản sắc và một bản ngã để có được những gì bạn muốn.
+
+Nếu bạn đi bộ xuống phố và có một ngàn người trên đường phố, tất cả một ngàn người đang nói chuyện với bản thân trong đầu của họ tại bất kỳ thời điểm nào. Họ liên tục đánh giá mọi thứ họ
+
+thấy. Họ đang chơi lại phim ảnh của những thứ đã xảy ra với họ ngày hôm qua. Họ đang sống trong thế giới tưởng tượng của những gì sẽ xảy ra vào ngày mai. Họ chỉ được kéo ra khỏi thực tế cơ sở. Điều đó có thể là tốt khi bạn thực hiện lập kế hoạch tầm xa. Nó có thể là tốt khi bạn giải quyết các vấn đề. Nó là tốt cho chúng ta như những máy sinh tồn và sao chép.
+
+Tôi nghĩ rằng nó thực sự rất xấu cho hạnh phúc của bạn. Đối với tôi, tâm trí nên là một người hầu và một công cụ, không phải là một chủ nhân. Tâm trí khỉ của tôi không nên kiểm soát và lái tôi 24/7.
+
+Tôi muốn phá vỡ thói quen suy nghĩ không kiểm soát, mà là khó khăn. [4]
+
+Một tâm trí bận rộn tăng tốc độ trôi qua của thời gian chủ quan.
+
+Không có điểm cuối để tự nhận thức và tự khám phá. Đó là một quá trình suốt đời bạn hy vọng tiếp tục nhận được tốt hơn và tốt hơn tại. Không có một câu trả lời có ý nghĩa, và không ai sẽ giải quyết nó đầy đủ trừ khi bạn là một trong những nhân vật просветление này. Có lẽ một số người trong chúng ta sẽ đến đó, nhưng tôi không có khả năng, cho rằng tôi tham gia vào cuộc đua chuột như thế nào. Trường hợp tốt nhất là tôi là một con chuột có thể nhìn lên những đám mây một lần trong một thời gian.
+
+Tôi nghĩ rằng chỉ được nhận thức bạn là một con chuột trong một cuộc đua là nhiều như hầu hết chúng ta sẽ nhận được. [8]
+
+Học theo bản năng có thể làm những điều phức tạp dễ dàng hơn.
+
+Hai là chọn và làm việc dựa trên các giá trị. Bỏ những hoạt động phụ và chỉ tập trung.
+
+---
+
+**PHẦN 22: TRIẾT HỌC**
+
+Những sự thật thực sự là dị giáo. Chúng không thể được nói. Chỉ được phát hiện, thì thầm và có lẽ đọc.
