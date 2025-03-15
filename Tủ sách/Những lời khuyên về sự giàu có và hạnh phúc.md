@@ -1226,4 +1226,4 @@ Trớ trêu thay, nhịn ăn (từ một cơ sở paleo / ít carb) dễ dàng h
 
 Những gì tôi tự hỏi về Bánh mì Wonder là làm thế nào nó có thể giữ mềm ở nhiệt độ phòng trong nhiều tháng. Nếu vi khuẩn sẽ không ăn nó, bạn nên? [11]
 
-Đã năm ngàn năm, và chúng ta vẫn đang tranh luận về việc liệu thịt có độc hay thực vật có độc. Bỏ những người theo chủ nghĩa cực đoan và bất kỳ thực phẩm nào được phát minh trong vài
+Đã năm ngàn năm, và chúng ta vẫn đang tranh luận về việc liệu thịt có độc hay thực vật có độc. Bỏ những người theo chủ nghĩa cực đoan và bất kỳ thực phẩm nào được phát minh trong vài 
