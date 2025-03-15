@@ -1226,4 +1226,20 @@ Trớ trêu thay, nhịn ăn (từ một cơ sở paleo / ít carb) dễ dàng h
 
 Những gì tôi tự hỏi về Bánh mì Wonder là làm thế nào nó có thể giữ mềm ở nhiệt độ phòng trong nhiều tháng. Nếu vi khuẩn sẽ không ăn nó, bạn nên? [11]
 
-Đã năm ngàn năm, và chúng ta vẫn đang tranh luận về việc liệu thịt có độc hay thực vật có độc. Bỏ những người theo chủ nghĩa cực đoan và bất kỳ thực phẩm nào được phát minh trong vài 
+Đã năm ngàn năm, và chúng ta vẫn đang tranh luận về việc liệu thịt có độc hay thực vật có độc. Bỏ những người theo chủ nghĩa cực đoan và bất kỳ thực phẩm nào được phát minh trong vài trăm năm qua. [11]
+
+Khi nói đến y học và dinh dưỡng, hãy trừ trước khi bạn thêm. [11]
+
+Huấn luyện viên của tôi gửi cho tôi hình ảnh các bữa ăn của anh ấy và nó nhắc nhở tôi rằng tất cả chúng ta đều nghiện hương vị. [11]
+
+Chế độ ăn uống đơn giản nhất thế giới: Càng chế biến nhiều thực phẩm, càng ít người ta nên tiêu thụ.
+
+**BÀI TẬP**
+
+Càng khó khăn việc tập luyện, càng dễ dàng một ngày.
+
+Thói quen nào bạn sẽ nói rằng ảnh hưởng tích cực nhất đến cuộc sống của bạn?
+
+Các tập luyện buổi sáng hàng ngày. Điều đó đã là một trò chơi thay đổi hoàn toàn. Nó đã làm cho tôi cảm thấy khỏe mạnh hơn, trẻ hơn. Nó đã làm cho tôi không đi chơi muộn. Nó đến từ một điều đơn giản, mà mọi người đều nói, "Tôi không có thời gian." Về cơ bản, bất cứ khi nào bạn ném bất kỳ thói quen tốt nào được gọi là ai đó, họ sẽ có một cái cớ cho chính họ. Thông thường, phổ biến nhất là "Tôi không có thời gian." "Tôi không có thời gian" chỉ là một cách khác để nói "Đó không phải là một ưu tiên." Những gì bạn thực sự phải làm là nói liệu nó có phải là một ưu tiên hay không. Nếu một cái gì đó là ưu tiên số một của bạn, thì bạn sẽ làm điều đó. Đó chỉ là cách cuộc sống hoạt động. Nếu bạn có một giỏ mơ hồ của mười hoặc mười lăm ưu tiên khác nhau, bạn sẽ kết thúc không nhận được bất kỳ chúng.
+
+Những gì tôi đã làm là quyết định ưu tiên số một của tôi trong cuộc sống, trên cả hạnh phúc của tôi, trên cả gia đình tôi, trên cả công việc của tôi, là sức khỏe của chính tôi. [4] Bởi vì sức khỏe thể chất của tôi đã trở thành ưu tiên số một của tôi, sau đó tôi không bao giờ có thể nói tôi không có thời gian. Vào buổi sáng, tôi tập luyện, và tuy nhiên dài nó diễn ra là bao lâu nó diễn ra. Tôi không bắt đầu ngày của tôi cho đến khi tôi đã tập luyện. Tôi không quan tâm nếu thế giới đang tan vỡ và tan chảy
