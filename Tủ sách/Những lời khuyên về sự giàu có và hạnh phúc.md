@@ -531,3 +531,59 @@ Nếu bạn nhìn vào ngay cả những bác sĩ trở nên giàu có (như th�
 những người. Hoặc họ xây dựng một số loại thiết bị y tế, một thủ tục hoặc một quy trình với một tài sản trí tuệ.
 
 Về cơ bản, bạn đang làm việc cho ai đó khác, và người đó đang đảm nhận rủi ro và có trách nhiệm giải trình, tài sản trí tuệ và thương hiệu. Họ sẽ không trả cho bạn đủ. Họ sẽ trả cho bạn mức tối thiểu trần trụi họ phải, để bạn làm công việc của họ.
+
+Nó có thể là một mức tối thiểu trần trụi cao, nhưng nó vẫn sẽ không phải là sự giàu có thực sự nơi bạn đã nghỉ hưu nhưng vẫn kiếm tiền. [78]
+
+Sở hữu vốn chủ sở hữu trong một công ty về cơ bản có nghĩa là bạn sở hữu lợi nhuận tiềm năng. Khi bạn sở hữu nợ, bạn sở hữu các luồng doanh thu được đảm bảo và bạn sở hữu nhược điểm. Bạn muốn sở hữu vốn chủ sở hữu. Nếu bạn không sở hữu vốn chủ sở hữu trong một doanh nghiệp, tỷ lệ cược kiếm tiền của bạn là rất nhỏ.
+
+Bạn phải làm việc đến điểm nơi bạn có thể sở hữu vốn chủ sở hữu trong một doanh nghiệp. Bạn có thể sở hữu vốn chủ sở hữu như một cổ đông nhỏ nơi bạn đã mua cổ phiếu. Bạn cũng có thể sở hữu nó như một chủ sở hữu nơi bạn đã bắt đầu công ty. Quyền sở hữu thực sự quan trọng. [10]
+
+Mọi người thực sự kiếm tiền tại một số điểm đều sở hữu một phần của một sản phẩm, một doanh nghiệp hoặc một số IP. Điều đó có thể thông qua các tùy chọn cổ phiếu nếu bạn làm việc tại một công ty công nghệ. Đó là một cách tốt để bắt đầu.
+
+Nhưng thường thì, sự giàu có thực sự được tạo ra bằng cách bắt đầu các công ty của riêng bạn hoặc thậm chí bằng cách đầu tư. Trong một công ty đầu tư, họ đang mua vốn chủ sở hữu. Đây là những con đường dẫn đến sự giàu có. Nó không đến thông qua những giờ. [78]
+
+---
+
+**CHƯƠNG 10: TÌM MỘT VỊ TRÍ ĐÒN BẨY**
+
+Chúng ta đang sống trong một kỷ nguyên của đòn bẩy vô hạn và phần thưởng kinh tế cho sự tò mò trí tuệ thực sự chưa bao giờ cao hơn. [11] Theo đuổi sự tò mò trí tuệ thực sự của bạn là một nền tảng tốt hơn cho một sự nghiệp hơn là theo đuổi bất cứ điều gì đang kiếm tiền ngay bây giờ. [11]
+
+Kiến thức chỉ bạn biết hoặc chỉ một nhóm nhỏ người biết sẽ đến từ niềm đam mê và sở thích của bạn, một cách kỳ lạ
+
+đủ. Nếu bạn có sở thích xung quanh sự tò mò trí tuệ của bạn, bạn có nhiều khả năng phát triển những đam mê này hơn. [1]
+
+Nếu nó làm bạn giải trí bây giờ nhưng sẽ làm bạn chán vào một ngày nào đó, đó là một sự xao nhãng. Tiếp tục tìm kiếm.
+
+Tôi chỉ thực sự muốn làm những điều vì lợi ích riêng của chúng. Đó là một định nghĩa về nghệ thuật. Cho dù đó là kinh doanh, tập thể dục, lãng mạn, tình bạn, bất cứ điều gì, tôi nghĩ ý nghĩa của cuộc sống là làm mọi thứ vì lợi ích riêng của họ. Trớ trêu thay, khi bạn làm mọi thứ vì lợi ích riêng của họ, bạn tạo ra công việc tốt nhất của bạn. Ngay cả khi bạn chỉ đang cố gắng kiếm tiền, bạn sẽ thực sự là người thành công nhất.
+
+Năm tôi tạo ra nhiều sự giàu có nhất cho bản thân thực sự là năm tôi làm việc ít chăm chỉ nhất và quan tâm ít nhất về tương lai. Tôi chủ yếu làm mọi thứ vì niềm vui đơn thuần của nó. Về cơ bản, tôi đã nói với mọi người, "Tôi đã nghỉ hưu, tôi không làm việc." Sau đó, tôi có thời gian cho bất cứ điều gì là dự án được đánh giá cao nhất của tôi trước mặt tôi. Bằng cách làm mọi thứ vì lợi ích riêng của chúng, tôi đã làm chúng tốt nhất. [74]
+
+Bạn càng muốn một cái gì đó ít hơn, bạn càng ít nghĩ về nó, bạn càng ít ám ảnh về nó, bạn càng có nhiều khả năng làm điều đó một cách tự nhiên. Bạn càng có nhiều khả năng làm điều đó cho chính bạn. Bạn sẽ làm điều đó theo một cách bạn giỏi, và bạn sẽ gắn bó với nó. Những người xung quanh bạn sẽ thấy chất lượng công việc của bạn cao hơn. [1]
+
+Theo đuổi sự tò mò trí tuệ của bạn nhiều hơn bất cứ điều gì đang "hot" ngay bây giờ. Nếu sự tò mò của bạn bao giờ dẫn bạn đến một nơi mà xã hội cuối cùng muốn đến, bạn sẽ được trả tiền cực kỳ tốt. [3]
+
+Bạn có nhiều khả năng có những kỹ năng mà xã hội chưa biết cách đào tạo người khác làm. Nếu ai đó có thể đào tạo người khác làm một cái gì đó, thì họ có thể thay thế bạn. Nếu họ có thể thay thế bạn, thì họ không phải trả cho bạn nhiều tiền. Bạn muốn biết làm thế nào để làm một cái gì đó người khác không biết làm thế nào để làm tại thời điểm đó khi những kỹ năng đó đang có nhu cầu. [1]
+
+Nếu họ có thể đào tạo bạn để làm điều đó, thì cuối cùng họ sẽ đào tạo một máy tính để làm điều đó.
+
+Bạn được khen thưởng bởi xã hội vì đã cung cấp cho nó những gì nó muốn và không biết làm thế nào để có được ở nơi khác. Rất nhiều người nghĩ rằng bạn có thể đến trường và học cách kiếm tiền, nhưng thực tế là, không có kỹ năng nào gọi là "kinh doanh". [1]
+
+Hãy nghĩ về sản phẩm hoặc dịch vụ nào xã hội muốn nhưng chưa biết cách có được. Bạn muốn trở thành người cung cấp nó và cung cấp nó ở quy mô lớn. Đó thực sự là thách thức của việc làm thế nào để kiếm tiền.
+
+Bây giờ, vấn đề là trở nên giỏi ở bất cứ điều gì "nó" là. Nó di chuyển xung quanh từ thế hệ này sang thế hệ khác, nhưng rất nhiều trong số đó xảy ra là trong công nghệ.
+
+Bạn đang chờ đợi khoảnh khắc của bạn khi một cái gì đó nổi lên trên thế giới, họ cần một bộ kỹ năng và bạn đủ điều kiện một cách độc đáo. Bạn xây dựng thương hiệu của bạn trong thời gian chờ đợi trên Twitter, trên YouTube và bằng cách cho đi công việc miễn phí. Bạn tạo dựng tên tuổi cho bản thân, và bạn chấp nhận một số rủi ro trong quá trình này. Khi đến lúc để di chuyển
+
+về cơ hội, bạn có thể làm như vậy với đòn bẩy — đòn bẩy tối đa có thể. [1]
+
+Có ba loại đòn bẩy rộng:
+
+Một hình thức đòn bẩy là lao động — con người khác làm việc cho bạn. Đó là hình thức đòn bẩy lâu đời nhất, và thực sự không phải là một cái tốt trong thế giới hiện đại. [1] Tôi sẽ tranh luận điều này là hình thức đòn bẩy tồi tệ nhất bạn có thể sử dụng. Quản lý người khác là vô cùng lộn xộn. Nó đòi hỏi những kỹ năng lãnh đạo to lớn. Bạn là một bước ngắn từ một cuộc binh biến hoặc bị ăn thịt hoặc xé nát bởi đám đông. [78]
+
+Tiền là tốt như một hình thức đòn bẩy. Nó có nghĩa là mỗi khi bạn đưa ra quyết định, bạn nhân nó với tiền. [1] Vốn là một hình thức đòn bẩy khó sử dụng hơn. Nó hiện đại hơn. Đó là một trong những người đã sử dụng để trở nên giàu có một cách tuyệt vời trong thế kỷ trước. Nó có lẽ là hình thức đòn bẩy thống trị trong thế kỷ trước.
+
+Bạn có thể thấy điều này bằng cách tìm kiếm những người giàu nhất. Đó là các chủ ngân hàng, chính trị gia ở các quốc gia tham nhũng in tiền, về cơ bản là những người di chuyển một lượng tiền lớn xung quanh. Nếu bạn nhìn vào đỉnh của các công ty rất lớn, bên ngoài các công ty công nghệ, trong nhiều, nhiều công ty cũ lớn, công việc của Giám đốc điều hành thực sự là một công việc tài chính.
+
+Nó quy mô rất, rất tốt. Nếu bạn trở nên giỏi quản lý vốn, bạn có thể quản lý ngày càng nhiều vốn dễ dàng hơn nhiều so với bạn có thể quản lý ngày càng nhiều người. [78]
+
+Hình thức đòn bẩy cuối cùng là hoàn toàn mới — hình thức dân chủ nhất. Đó là: "các sản phẩm không có chi phí sao chép biên."
