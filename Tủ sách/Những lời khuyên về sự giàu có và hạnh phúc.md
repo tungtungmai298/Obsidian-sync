@@ -228,3 +228,131 @@ Live, on Twitter, it's Naval (applause ensues...)
 **PHẦN I: GIÀU CÓ**
 
 Làm thế nào để trở nên giàu có mà không cần may mắn.
+Tuyệt vời! Tiếp tục dịch nhé:
+
+**CHƯƠNG 5: XÂY DỰNG SỰ GIÀU CÓ**
+
+Kiếm tiền không phải là một việc bạn làm—đó là một kỹ năng bạn học được.
+
+**HIỂU CÁCH SỰ GIÀU CÓ ĐƯỢC TẠO RA**
+
+Tôi muốn nghĩ rằng nếu tôi mất tất cả tiền bạc của mình và bạn thả tôi xuống một con phố ngẫu nhiên ở bất kỳ quốc gia nói tiếng Anh nào, trong vòng năm hoặc mười năm tôi sẽ giàu có trở lại bởi vì đó chỉ là một bộ kỹ năng mà tôi đã phát triển mà bất kỳ ai cũng có thể phát triển. [78]
+
+Nó không thực sự về sự chăm chỉ. Bạn có thể làm việc trong một nhà hàng tám mươi giờ một tuần, và bạn sẽ không giàu có. Làm giàu là về việc biết phải làm gì, làm với ai và khi nào nên làm. Nó quan trọng hơn nhiều về sự hiểu biết so với sự chăm chỉ thuần túy. Có, sự chăm chỉ quan trọng, và bạn không thể bỏ qua nó. Nhưng nó phải được hướng dẫn đúng cách.
+
+Nếu bạn chưa biết mình nên làm gì, điều quan trọng nhất là tìm ra nó. Bạn không nên nghiền ngẫm vào rất nhiều công việc khó khăn cho đến khi bạn tìm ra những gì bạn nên làm.
+
+Tôi đã đưa ra các nguyên tắc trong cơn bão tweet của mình (bên dưới) cho bản thân khi tôi còn rất trẻ, khoảng mười ba hoặc mười bốn tuổi. Tôi đã mang chúng trong đầu mình trong ba mươi năm, và tôi đã sống chúng. Theo thời gian (buồn hay may mắn), điều tôi thực sự giỏi là nhìn vào các doanh nghiệp và tìm ra điểm đòn bẩy tối đa để thực sự tạo ra sự giàu có và nắm bắt một phần sự giàu có được tạo ra đó.
+
+Đây chính xác là những gì tôi đã làm trong tweetstorm nổi tiếng của mình. Tất nhiên, mỗi một trong số các tweet này có thể được ngoại suy thành một giờ trò chuyện. Tweetstorm dưới đây là một điểm khởi đầu tốt. Tweetstorm cố gắng mang tính thông tin dày đặc, rất ngắn gọn, có tác động cao và vượt thời gian. Nó có tất cả thông tin và nguyên tắc, vì vậy nếu bạn hấp thụ những điều này và bạn làm việc chăm chỉ trong hơn mười năm, bạn sẽ nhận được những gì bạn muốn. [77]
+
+**Làm thế nào để làm giàu (Không cần may mắn):**
+
+- Tìm kiếm sự giàu có, không phải tiền bạc hay địa vị. Sự giàu có là có những tài sản kiếm tiền khi bạn ngủ. Tiền là cách chúng ta chuyển thời gian và sự giàu có. Địa vị là vị trí của bạn trong hệ thống phân cấp xã hội.
+    
+- Hiểu rằng việc tạo ra sự giàu có đạo đức là có thể. Nếu bạn bí mật coi thường sự giàu có, nó sẽ lẩn tránh bạn.
+    
+- Bỏ qua những người chơi trò chơi địa vị. Họ đạt được địa vị bằng cách tấn công những người chơi trò chơi tạo ra sự giàu có.
+    
+- Bạn sẽ không thể làm giàu bằng cách thuê thời gian của bạn. Bạn phải sở hữu vốn chủ sở hữu - một phần của doanh nghiệp - để đạt được tự do tài chính.
+    
+- Bạn sẽ làm giàu bằng cách cung cấp cho xã hội những gì nó muốn nhưng chưa biết cách có được. Ở quy mô lớn.
+    
+- Chọn một ngành mà bạn có thể chơi các trò chơi dài hạn với những người dài hạn.
+    
+- Internet đã mở rộng đáng kể không gian nghề nghiệp có thể có. Hầu hết mọi người chưa tìm ra điều này.
+    
+- Chơi các trò chơi lặp đi lặp lại. Tất cả các lợi nhuận trong cuộc sống, cho dù là sự giàu có, mối quan hệ, hay kiến thức, đều đến từ lãi kép.
+    
+- Chọn đối tác kinh doanh có trí thông minh cao, năng lượng và trên hết, tính chính trực.
+    
+- Đừng hợp tác với những kẻ bi quan và yếm thế. Niềm tin của họ tự hoàn thành.
+    
+- Học cách bán. Học cách xây dựng. Nếu bạn có thể làm cả hai, bạn sẽ không thể ngăn cản.
+    
+- Trang bị cho bản thân kiến thức cụ thể, trách nhiệm giải trình và đòn bẩy.
+    
+- Kiến thức cụ thể là kiến thức bạn không thể được đào tạo. Nếu xã hội có thể đào tạo bạn, nó có thể đào tạo người khác và thay thế bạn.
+    
+- Kiến thức cụ thể được tìm thấy bằng cách theo đuổi sự tò mò và đam mê thực sự của bạn hơn là bất cứ điều gì đang hot ngay bây giờ.
+    
+- Xây dựng kiến thức cụ thể sẽ có cảm giác như chơi đối với bạn nhưng sẽ trông giống như công việc đối với người khác.
+    
+- Khi kiến thức cụ thể được dạy, nó thông qua học nghề, không phải trường học.
+    
+- Kiến thức cụ thể thường mang tính kỹ thuật hoặc sáng tạo cao. Nó không thể được thuê ngoài hoặc tự động hóa.
+    
+- Nắm lấy trách nhiệm giải trình và chấp nhận rủi ro kinh doanh dưới tên của chính bạn. Xã hội sẽ thưởng cho bạn trách nhiệm, vốn chủ sở hữu và đòn bẩy.
+    
+- "Hãy cho tôi một đòn bẩy đủ dài và một nơi để đứng, và tôi sẽ di chuyển trái đất." - Archimedes
+    
+- Tài sản đòi hỏi đòn bẩy. Đòn bẩy kinh doanh đến từ vốn, con người và sản phẩm với chi phí tái tạo biên bằng không (mã và phương tiện truyền thông).
+    
+- Vốn có nghĩa là tiền. Để gây quỹ, hãy áp dụng kiến thức cụ thể của bạn với trách nhiệm giải trình và cho thấy đánh giá tốt kết quả.
+    
+- Lao động có nghĩa là mọi người làm việc cho bạn. Đây là hình thức đòn bẩy lâu đời nhất và bị tranh giành nhiều nhất. Đòn bẩy lao động sẽ gây ấn tượng với cha mẹ bạn, nhưng đừng lãng phí cuộc đời bạn để đuổi theo nó.
+    
+- Vốn và lao động là đòn bẩy được cho phép. Mọi người đang đuổi theo vốn, nhưng ai đó phải cho nó cho bạn. Mọi người đang cố gắng dẫn dắt, nhưng ai đó phải theo bạn.
+    
+- Mã và phương tiện truyền thông là đòn bẩy không cần sự cho phép. Chúng là đòn bẩy đằng sau những người giàu mới. Bạn có thể tạo phần mềm và phương tiện truyền thông hoạt động cho bạn khi bạn ngủ.
+    
+- Một đội quân robot có sẵn miễn phí - nó chỉ được đóng gói trong các trung tâm dữ liệu để sưởi ấm và tiết kiệm không gian. Sử dụng nó.
+    
+- Nếu bạn không thể viết mã, hãy viết sách và blog, quay video và podcast.
+    
+- Đòn bẩy là một bộ khuếch đại lực cho phán đoán của bạn.
+    
+- Phán đoán đòi hỏi kinh nghiệm nhưng có thể được xây dựng nhanh hơn bằng cách học các kỹ năng nền tảng.
+    
+- Không có kỹ năng nào gọi là "kinh doanh". Tránh các tạp chí kinh doanh và các lớp kinh doanh.
+    
+- Nghiên cứu kinh tế vi mô, lý thuyết trò chơi, tâm lý học, thuyết phục, đạo đức, toán học và máy tính.
+    
+- Đọc nhanh hơn nghe. Làm nhanh hơn xem.
+    
+- Bạn nên quá bận rộn để "uống cà phê" trong khi vẫn giữ một lịch trình không lộn xộn.
+    
+- Đặt và thực thi một tỷ lệ hàng giờ cá nhân đầy khát vọng. Nếu việc sửa một vấn đề sẽ tiết kiệm ít hơn tỷ lệ hàng giờ của bạn, hãy bỏ qua nó. Nếu việc thuê ngoài một nhiệm vụ sẽ tốn ít hơn tỷ lệ hàng giờ của bạn, hãy thuê ngoài nó.
+    
+- Làm việc chăm chỉ nhất có thể. Mặc dù ai bạn làm việc cùng và những gì bạn làm quan trọng hơn bạn làm việc chăm chỉ như thế nào.
+    
+- Trở thành người giỏi nhất trên thế giới ở những gì bạn làm. Tiếp tục định nghĩa lại những gì bạn làm cho đến khi điều này là đúng.
+    
+- Không có kế hoạch làm giàu nhanh chóng. Đó chỉ là ai đó khác làm giàu từ bạn.
+    
+- Áp dụng kiến thức cụ thể, với đòn bẩy và cuối cùng bạn sẽ nhận được những gì bạn xứng đáng.
+    
+- Khi bạn cuối cùng đã giàu có, bạn sẽ nhận ra đó không phải là những gì bạn đang tìm kiếm ngay từ đầu. Nhưng đó là cho một ngày khác. [11]
+    
+
+**Tóm tắt: Sản phẩm hóa bản thân**
+
+Tóm tắt của bạn nói "Sản phẩm hóa bản thân" - điều đó có nghĩa là gì?
+
+"Sản phẩm hóa" và "bản thân." "Bản thân" có tính độc đáo. "Sản phẩm hóa" có đòn bẩy. "Bản thân" có trách nhiệm giải trình. "Sản phẩm hóa" cũng có kiến thức cụ thể ở đó. Vì vậy, tất cả những mảnh này, bạn có thể kết hợp chúng thành hai từ này.
+
+Nếu bạn đang hướng tới mục tiêu dài hạn là làm giàu, bạn nên tự hỏi mình, "Điều này có xác thực với tôi không? Có phải là bản thân tôi mà tôi đang dự án?" Và sau đó, "Tôi có đang sản phẩm hóa nó không? Tôi có đang mở rộng quy mô nó không? Tôi có đang mở rộng quy mô với lao động hay với vốn hay với mã hay với phương tiện truyền thông không?" Vì vậy, đó là một cách ghi nhớ rất tiện dụng, đơn giản. [78]
+
+Điều này là khó khăn. Đây là lý do tại sao tôi nói cần hàng thập kỷ —Tôi không nói cần hàng thập kỷ để thực hiện, nhưng phần tốt hơn của một thập kỷ có thể là để tìm ra những gì bạn có thể cung cấp một cách độc đáo. [10]
+
+Sự khác biệt giữa giàu có và tiền bạc là gì?
+
+Tiền là cách chúng ta chuyển giao sự giàu có. Tiền là tín dụng xã hội. Đó là khả năng có các khoản tín dụng và ghi nợ thời gian của người khác.
+
+Nếu tôi làm đúng công việc của mình, nếu tôi tạo ra giá trị cho xã hội, xã hội nói, "Ồ, cảm ơn bạn. Chúng tôi nợ bạn một cái gì đó trong tương lai cho công việc bạn đã làm trong quá khứ. Đây là một IOU nhỏ. Hãy gọi đó là tiền." [78]
+
+Giàu có là điều bạn muốn. Giàu có là tài sản kiếm tiền khi bạn ngủ. Giàu có là nhà máy, robot, nghiền nát mọi thứ. Giàu có là chương trình máy tính đang chạy vào ban đêm, phục vụ những khách hàng khác. Giàu có thậm chí là tiền trong ngân hàng đang được tái đầu tư vào các tài sản khác và vào các doanh nghiệp khác.
+
+Ngay cả một ngôi nhà cũng có thể là một hình thức giàu có, bởi vì bạn có thể cho thuê nó, mặc dù đó có lẽ là một cách sử dụng đất đai có năng suất thấp hơn so với một doanh nghiệp thương mại.
+
+Vì vậy, định nghĩa của tôi về sự giàu có là nhiều doanh nghiệp và tài sản có thể kiếm tiền khi bạn ngủ. [78]
+
+Công nghệ dân chủ hóa tiêu dùng nhưng củng cố sản xuất. Người giỏi nhất trên thế giới về bất cứ điều gì được làm điều đó cho mọi người.
+
+Xã hội sẽ trả cho bạn vì đã tạo ra những thứ nó muốn. Nhưng xã hội chưa biết cách tạo ra những thứ đó, bởi vì nếu nó làm, nó sẽ không cần bạn. Chúng sẽ được đóng dấu ra rồi.
+
+Hầu hết mọi thứ trong nhà bạn, tại nơi làm việc của bạn và trên đường phố từng là công nghệ tại một thời điểm. Đã có một thời khi dầu là một công nghệ khiến J.D. Rockefeller giàu có. Đã có một thời khi ô tô là công nghệ khiến Henry Ford giàu có.
+
+Vì vậy, công nghệ là tập hợp những thứ, như Alan Kay đã nói, chưa hoạt động tốt [sửa chữa: Danny Hillis]. Một khi một cái gì đó hoạt động, nó không còn là công nghệ nữa. Xã hội luôn muốn những thứ mới. Và nếu bạn muốn giàu có, bạn muốn tìm ra cái nào trong những thứ đó bạn có thể cung cấp cho xã hội mà nó chưa biết cách có được nhưng nó sẽ muốn và cung cấp nó là tự nhiên đối với bạn, trong bộ kỹ năng của bạn và trong khả năng của bạn.
+
+Sau đó, bạn phải tìm ra cách mở rộng quy mô nó bởi vì nếu bạn chỉ xây dựng một, thì điều đó không đủ. Bạn phải xây dựng hàng ngàn, hoặc hàng trăm ngàn, hoặc hàng triệu, hoặc hàng tỷ trong số đó để mọi người có thể có một. Steve Jobs (và nhóm của anh ấy, tất nhiên) đã tìm ra xã hội sẽ muốn điện thoại thông minh. Một máy tính trong túi của họ có tất cả khả năng điện thoại gấp một trăm lần và dễ sử dụng. Vì vậy, họ đã tìm ra cách xây dựng nó và sau đó họ đã tìm ra cách mở rộng quy mô nó. [78]
