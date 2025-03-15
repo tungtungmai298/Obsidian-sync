@@ -1196,4 +1196,14 @@ Có một số về phía vật lý. Chúng ta có chế độ ăn uống chúng
 
 Về mặt tập thể dục, chúng ta có lẽ có nghĩa là chơi thay vì chạy trên máy chạy bộ. Chúng ta có lẽ tiến hóa để sử dụng tất cả năm giác quan của chúng ta ngang nhau trái ngược với việc ủng hộ vỏ não thị giác. Trong xã hội hiện đại, hầu hết tất cả các đầu vào và giao tiếp của chúng ta là trực quan. Chúng ta không có nghĩa là đi bộ trong giày. Rất nhiều vấn đề về lưng và chân đến từ giày. Chúng ta không có nghĩa là có quần áo giữ cho chúng ta ấm áp mọi lúc. Chúng ta có nghĩa là có một số phơi nhiễm lạnh. Nó khởi động hệ thống miễn dịch của bạn.
 
-Chúng ta không tiến hóa để sống trong một môi trường hoàn toàn vô trùng và sạch sẽ
+Chúng ta không tiến hóa để sống trong một môi trường hoàn toàn vô trùng và sạch sẽ. Nó dẫn đến dị ứng và một hệ thống miễn dịch không được đào tạo. Điều này được gọi là giả thuyết vệ sinh. Chúng ta tiến hóa để sống trong các bộ lạc nhỏ hơn nhiều và có nhiều gia đình hơn xung quanh chúng ta. Tôi phần lớn lớn lên ở Ấn Độ, và ở Ấn Độ, mọi người đều ở trong công việc của bạn. Có một người anh em họ, một dì, một chú người ở trong mặt bạn, điều đó làm cho nó khó để bị trầm cảm, bởi vì bạn không bao giờ đơn độc. (Tôi không đề cập đến những người bị trầm cảm hóa học. Tôi đang nói nhiều hơn về sự lo lắng hiện sinh và khó chịu mà thanh thiếu niên dường như trải qua.) Nhưng mặt khác, bạn không có sự riêng tư, vì vậy bạn không thể tự do. Có những đánh đổi.
+
+Chúng ta không có nghĩa là để kiểm tra điện thoại của chúng ta mỗi năm phút. Những thay đổi tâm trạng liên tục của việc nhận được một "thích" sau đó một bình luận giận dữ biến chúng ta thành những sinh vật lo lắng. Chúng ta tiến hóa cho sự khan hiếm nhưng sống trong sự phong phú. Có một cuộc đấu tranh liên tục để nói không khi gen của bạn luôn muốn nói có. Có cho đường. Có cho việc ở lại trong mối quan hệ này. Có cho rượu. Có cho ma túy. Có, có, có. Cơ thể của chúng ta không biết làm thế nào để nói không. [8]
+
+Khi mọi người bị bệnh, chúng ta không còn coi đó là một căn bệnh.
+
+**CHẾ ĐỘ ĂN UỐNG**
+
+Ngoài toán học, vật lý và hóa học, không có nhiều "khoa học đã giải quyết." Chúng ta vẫn đang tranh luận về chế độ ăn uống tối ưu là gì.
+
+Bạn có ý kiến về chế độ ăn kiêng ketogenic?
