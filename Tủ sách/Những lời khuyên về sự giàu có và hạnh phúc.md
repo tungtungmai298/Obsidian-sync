@@ -1182,7 +1182,7 @@ Ham muốn là một hợp đồng bạn làm với chính mình để không h�
 
 ---
 
-**PHẦN 19: THẬT THÀ CHONH LỰA CHỌN CHĂM SÓC CHO BẢN THÂN**
+**PHẦN 19: THẬT THÀ TR LỰA CHỌN CHĂM SÓC CHO BẢN THÂN**
 
 Ưu tiên số một của tôi trong cuộc sống, trên cả hạnh phúc của tôi, trên cả gia đình tôi, trên cả công việc của tôi, là sức khỏe của chính tôi. Nó bắt đầu với sức khỏe thể chất của tôi. Thứ hai, đó là sức khỏe tinh thần của tôi. Thứ ba, đó là sức khỏe tâm linh của tôi. Sau đó, đó là sức khỏe của gia đình tôi. Sau đó, đó là hạnh phúc của gia đình tôi. Sau đó, tôi có thể ra ngoài và làm bất cứ điều gì tôi cần làm với phần còn lại của thế giới. [4]
 
