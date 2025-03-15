@@ -646,4 +646,60 @@ Học cách bán, học cách xây dựng. Nếu bạn có thể làm cả hai, 
 
 Nhưng trong mọi ngành, có một định nghĩa về người xây dựng. Trong ngành công nghiệp công nghệ của chúng tôi, đó là CTO, đó là lập trình viên, đó là kỹ sư phần mềm hoặc kỹ sư phần cứng. Nhưng ngay cả trong ngành giặt ủi, nó có thể là người đang xây dựng dịch vụ giặt ủi, người đang làm cho các chuyến tàu chạy đúng giờ, người đang đảm bảo tất cả quần áo kết thúc ở đúng nơi vào đúng thời điểm, v.v.
 
-Phía bên kia của nó là bán hàng. Một lần nữa, bán hàng có một định nghĩa rất rộng. Bán hàng không nhất thiết chỉ có nghĩa là bán cho khách hàng cá nhân, nhưng nó có thể có nghĩa là tiếp thị, nó có thể có nghĩa là
+Phía bên kia của nó là bán hàng. Một lần nữa, bán hàng có một định nghĩa rất rộng. Bán hàng không nhất thiết chỉ có nghĩa là bán cho khách hàng cá nhân, nhưng nó có thể có nghĩa là tiếp thị, nó có thể có nghĩa là giao tiếp, nó có thể có nghĩa là tuyển dụng, nó có thể có nghĩa là gây quỹ, nó có thể có nghĩa là truyền cảm hứng cho mọi người, nó có thể có nghĩa là làm PR. Đó là một danh mục ô dù rộng. [78]
+
+Kiếm tiền bằng trí óc của bạn, không phải thời gian của bạn.
+
+Hãy nói thêm về kinh doanh bất động sản. Loại công việc tồi tệ nhất là ai đó đang làm công việc sửa chữa một ngôi nhà. Có lẽ bạn được trả mười đô la hoặc hai mươi đô la một giờ. Bạn đến nhà của mọi người, ông chủ của bạn yêu cầu bạn ở đó lúc 8:00 sáng, và bạn sửa chữa mảnh nhà của họ. Ở đây, bạn có đòn bẩy bằng không. Bạn có một số trách nhiệm giải trình, nhưng không thực sự, bởi vì trách nhiệm giải trình của bạn là với ông chủ của bạn, không phải với khách hàng. Bạn không có bất kỳ kiến thức cụ thể thực sự nào, vì những gì bạn đang làm là lao động nhiều người có thể làm. Bạn sẽ không được trả nhiều tiền. Bạn đang được trả mức lương tối thiểu cộng với một chút cho kỹ năng và thời gian của bạn.
+
+Mức tiếp theo có thể là tổng thầu làm việc trên ngôi nhà cho chủ sở hữu. Họ có thể được trả 50.000 đô la để thực hiện toàn bộ dự án, sau đó họ đang trả cho lao động mười lăm đô la một giờ và họ đang giữ sự khác biệt.
+
+Một tổng thầu rõ ràng là một nơi tốt hơn để ở. Nhưng làm thế nào để chúng ta đo lường nó? Làm thế nào để chúng ta biết nó tốt hơn? Chà, chúng ta biết nó tốt hơn bởi vì người này có một số trách nhiệm giải trình. Họ chịu trách nhiệm cho kết quả, họ phải đổ mồ hôi vào ban đêm nếu mọi thứ không hoạt động. Các nhà thầu có đòn bẩy thông qua công nhân làm việc cho họ. Họ cũng có kiến thức cụ thể hơn một chút: làm thế nào để tổ chức một đội, làm cho họ xuất hiện đúng giờ và làm thế nào để đối phó với các quy định của thành phố.
+
+Mức tiếp theo có thể là một nhà phát triển bất động sản. Một nhà phát triển là người sẽ mua một tài sản, thuê một loạt các nhà thầu và biến nó thành một cái gì đó giá trị cao hơn. Họ có lẽ phải vay một khoản vay để mua một ngôi nhà hoặc đến các nhà đầu tư để gây quỹ. Họ mua ngôi nhà cũ, phá bỏ nó, xây dựng lại nó và bán nó. Thay vì 50.000 đô la như tổng thầu, hoặc mười lăm đô la một giờ như người lao động, nhà phát triển có thể kiếm được một triệu đô la hoặc nửa triệu đô la lợi nhuận khi họ bán ngôi nhà với giá nhiều hơn những gì họ đã mua, bao gồm cả các chi phí xây dựng. Nhưng bây giờ, hãy chú ý những gì được yêu cầu từ nhà phát triển: một mức độ trách nhiệm giải trình rất cao.
+
+Nhà phát triển đảm nhận nhiều rủi ro hơn, nhiều trách nhiệm giải trình hơn, có nhiều đòn bẩy hơn và cần có kiến thức cụ thể hơn. Họ cần hiểu gây quỹ, quy định của thành phố, nơi thị trường bất động sản đang hướng đến và liệu họ có nên chấp nhận rủi ro hay không. Nó khó khăn hơn.
+
+Mức tiếp theo có thể là một người đang quản lý tiền trong một quỹ bất động sản. Họ có một số vốn rất lớn. Họ đang giao dịch với rất nhiều nhà phát triển và họ đang mua một lượng lớn hàng tồn kho nhà ở. [74]
+
+Một cấp độ vượt xa điều đó có thể là người nói, "Thực tế, tôi muốn mang lại đòn bẩy tối đa để chịu trong thị trường này và kiến thức cụ thể tối đa." Người đó sẽ nói, "Chà, tôi hiểu bất động sản, và tôi hiểu mọi thứ từ xây dựng nhà cơ bản, đến xây dựng tài sản và bán chúng, đến cách thị trường bất động sản di chuyển và phát triển, và tôi cũng hiểu kinh doanh công nghệ. Tôi hiểu làm thế nào để tuyển dụng các nhà phát triển, làm thế nào để viết mã và làm thế nào để xây dựng một sản phẩm tốt, và tôi hiểu làm thế nào để gây quỹ từ các nhà đầu tư mạo hiểm, làm thế nào để trả lại nó và làm thế nào tất cả những điều đó hoạt động."
+
+Rõ ràng, không một người nào có thể biết điều này. Bạn có thể kéo một đội lại với nhau để làm điều đó nơi mỗi người có các bộ kỹ năng khác nhau, nhưng thực thể kết hợp đó sẽ có kiến thức cụ thể trong công nghệ và bất động sản. Nó sẽ có trách nhiệm giải trình lớn vì tên của công ty đó sẽ là một nỗ lực rủi ro cao, phần thưởng cao gắn liền với toàn bộ, và mọi người sẽ cống hiến cuộc sống của họ cho nó và chấp nhận rủi ro đáng kể. Nó sẽ có đòn bẩy trong mã với rất nhiều nhà phát triển. Nó sẽ có vốn với các nhà đầu tư bỏ tiền vào và vốn riêng của người sáng lập. Nó sẽ có một số lao động chất lượng cao nhất bạn có thể tìm thấy, đó là các kỹ sư, nhà thiết kế và nhà tiếp thị chất lượng cao đang làm việc trên công ty.
+
+Sau đó, bạn có thể kết thúc với một công ty Trulia, Redfin hoặc Zillow, và sau đó lợi nhuận tiềm năng có thể nằm trong hàng tỷ đô la, hoặc hàng trăm triệu đô la. [78]
+
+Mỗi cấp độ có đòn bẩy tăng lên, trách nhiệm giải trình tăng lên, kiến thức cụ thể tăng lên. Bạn đang thêm vào đòn bẩy dựa trên tiền trên đỉnh của đòn bẩy dựa trên lao động. Thêm vào đòn bẩy dựa trên mã trên đỉnh của tiền và lao động cho phép bạn thực sự tạo ra một cái gì đó lớn hơn và lớn hơn và tiến gần hơn và gần hơn đến việc sở hữu tất cả các lợi nhuận tiềm năng, không chỉ được trả lương.
+
+Bạn bắt đầu như một nhân viên hưởng lương. Nhưng bạn muốn làm việc theo cách của bạn để cố gắng và có được đòn bẩy cao hơn, trách nhiệm giải trình cao hơn và kiến thức cụ thể. Sự kết hợp của những điều đó trong một khoảng thời gian dài với phép thuật của lãi kép sẽ làm cho bạn giàu có. [74]
+
+Điều duy nhất bạn phải tránh là rủi ro của sự hủy hoại.
+
+Tránh hủy hoại có nghĩa là tránh xa nhà tù. Vì vậy, đừng làm bất cứ điều gì bất hợp pháp. Nó không bao giờ đáng để mặc một bộ đồ màu cam. Tránh xa tổn thất thảm khốc hoàn toàn. Tránh hủy hoại cũng có nghĩa là bạn tránh xa những điều có thể nguy hiểm về thể chất hoặc làm tổn thương cơ thể bạn. Bạn phải theo dõi sức khỏe của bạn.
+
+Tránh xa những điều có thể khiến bạn mất tất cả vốn của mình, tất cả các khoản tiết kiệm của bạn. Đừng đánh bạc mọi thứ vào một lần đi. Thay vào đó, hãy thực hiện các cược lạc quan hợp lý với các lợi nhuận tiềm năng lớn. [78]
+
+---
+
+**CHƯƠNG 12: TRẢ TIỀN CHO PHÁN ĐOÁN CỦA BẠN**
+
+Chọn loại công việc, sự nghiệp hoặc lĩnh vực bạn tham gia và loại giao dịch bạn sẵn sàng chấp nhận từ chủ nhân của bạn sẽ cho bạn nhiều thời gian rảnh hơn. Sau đó, bạn không phải
+
+lo lắng nhiều như vậy về quản lý thời gian. Tôi muốn được trả tiền hoàn toàn cho phán đoán của tôi, không phải cho bất kỳ công việc nào. Tôi muốn một robot, vốn, hoặc máy tính để làm công việc, nhưng tôi muốn được trả tiền cho phán đoán của tôi. [1]
+
+Tôi nghĩ mọi con người nên khao khát trở nên hiểu biết về những điều nhất định và được trả tiền cho kiến thức độc đáo của chúng ta. Chúng ta có nhiều đòn bẩy nhất có thể trong doanh nghiệp của chúng ta, cho dù đó là thông qua robot hoặc máy tính hoặc những gì bạn có. Sau đó, chúng ta có thể là chủ nhân của thời gian riêng của chúng ta bởi vì chúng ta chỉ đang được theo dõi trên các đầu ra và không phải đầu vào.
+
+Hãy tưởng tượng ai đó đến người chứng minh được là có phán đoán tốt hơn một chút. Họ đúng 85 phần trăm thời gian thay vì 75 phần trăm. Bạn sẽ trả cho họ 50 triệu đô la, 100 triệu đô la, 200 triệu đô la, bất cứ điều gì cần thiết, bởi vì phán đoán tốt hơn 10 phần trăm lái một con tàu trị giá 100 tỷ đô la là rất giá trị. Các CEO được trả lương cao bởi vì đòn bẩy của họ. Sự khác biệt nhỏ trong phán đoán và khả năng thực sự được khuếch đại. [2]
+
+Phán đoán được chứng minh — sự tín nhiệm xung quanh phán đoán — là rất quan trọng. Warren Buffett thắng ở đây bởi vì anh ấy có sự tín nhiệm lớn. Anh ấy đã rất có trách nhiệm giải trình. Anh ấy đã đúng đi đúng lại trong phạm vi công cộng. Anh ấy đã xây dựng một danh tiếng cho sự chính trực rất cao, vì vậy bạn có thể tin tưởng anh ấy. Mọi người sẽ ném đòn bẩy vô hạn đằng sau anh ấy vì phán đoán của anh ấy. Không ai hỏi anh ấy làm việc chăm chỉ như thế nào. Không ai hỏi anh ấy khi nào anh ấy thức dậy hoặc khi nào anh ấy đi ngủ. Họ kiểu, "Warren, chỉ cần làm việc của bạn."
+
+Phán đoán — đặc biệt là phán đoán được chứng minh, với trách nhiệm giải trình cao và một hồ sơ theo dõi rõ ràng — là rất quan trọng. [78]
+
+Chúng ta lãng phí thời gian của chúng ta với suy nghĩ ngắn hạn và công việc bận rộn. Warren Buffett dành một năm để quyết định và một ngày để hành động. Hành động đó kéo dài hàng thập kỷ.
+
+Chỉ từ việc tốt hơn một cách biên, như chạy một phần tư dặm một phần nhỏ của một giây nhanh hơn, một số người được trả nhiều tiền hơn — thứ tự cường độ lớn hơn. Đòn bẩy khuếch đại những sự khác biệt đó thậm chí nhiều hơn. Ở mức cực đoan trong nghệ thuật của bạn là rất quan trọng trong thời đại của đòn bẩy. [2]
+
+---
+
+**CHƯƠNG 13: ƯU TIÊN VÀ TẬP TRUNG**
+
+Tôi đã gặp phải rất nhiều vận đen trên đường đi. Vận may nhỏ đầu tiên tôi kiếm được tôi đã mất ngay lập tức trên thị trường chứng khoán. Vận may nhỏ thứ hai tôi kiếm được, hoặc nên kiếm được, tôi về cơ bản
