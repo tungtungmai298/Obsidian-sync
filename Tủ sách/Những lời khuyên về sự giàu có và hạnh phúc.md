@@ -1207,3 +1207,13 @@ Khi mọi người bị bệnh, chúng ta không còn coi đó là một căn b�
 Ngoài toán học, vật lý và hóa học, không có nhiều "khoa học đã giải quyết." Chúng ta vẫn đang tranh luận về chế độ ăn uống tối ưu là gì.
 
 Bạn có ý kiến về chế độ ăn kiêng ketogenic?
+
+Có vẻ như rất khó để tuân theo. Nó có ý nghĩa cho não bộ và cơ thể để có một cơ chế sao lưu. Ví dụ, trong kỷ băng hà, con người đã tiến hóa mà không có nhiều thực vật có sẵn. Đồng thời, chúng ta đã ăn thực vật trong hàng ngàn năm...Tôi không nghĩ rằng thực vật có hại cho bạn, nhưng một cái gì đó gần gũi hơn với chế độ ăn kiêng paleo có lẽ là chính xác.
+
+Tôi nghĩ rằng sự tác động lẫn nhau giữa đường và chất béo là thực sự thú vị. Chất béo là những gì làm cho bạn no. Thực phẩm béo làm cho bạn cảm thấy no. Cách dễ nhất để cảm thấy no là đi vào một chế độ ăn uống ketogenic, nơi bạn đang ăn tấn thịt xông khói mọi lúc, và bạn sẽ cảm thấy gần như buồn nôn và không muốn nhìn vào chất béo nữa.
+
+Đường làm cho bạn đói. Đường báo hiệu cho cơ thể bạn, "Có nguồn lực thực phẩm đáng kinh ngạc này trong môi trường chúng ta không tiến hóa cho," vì vậy bạn lao ra để có được đường. Vấn đề là hiệu ứng đường chi phối hiệu ứng chất béo. Nếu bạn ăn một bữa ăn béo và bạn ném một ít đường vào, đường sẽ cung cấp đói và chất béo sẽ cung cấp calo và bạn chỉ sẽ ăn vô độ. Đó là lý do tại sao tất cả các món tráng miệng là sự kết hợp lớn của chất béo và carbs với nhau.
+
+Trong tự nhiên, rất hiếm khi tìm thấy carbs và chất béo với nhau. Trong tự nhiên, tôi tìm thấy carbs và chất béo với nhau trong dừa, trong xoài, có lẽ trong chuối, nhưng nó về cơ bản là trái cây nhiệt đới. Sự kết hợp của đường và chất béo với nhau là thực sự chết người. Bạn phải cẩn thận về điều đó trong chế độ ăn uống của bạn.
+
+Tôi không phải là một chuyên gia, và vấn đề là chế độ ăn uống và dinh dưỡng giống như chính trị: mọi người đều nghĩ rằng họ là một chuyên gia. Bản sắc của họ được gói gọn trong đó bởi vì những gì họ đã được ăn hoặc những gì họ
