@@ -1307,5 +1307,15 @@ Bạn có một thực hành thiền hiện tại?
 
 Tôi nghĩ rằng thiền là như ăn kiêng, nơi mọi người được cho là đang tuân theo một chế độ. Mọi người đều nói họ làm điều đó, nhưng không ai thực sự làm điều đó. Bộ người thực sự thiền định trên cơ sở thường xuyên, tôi đã thấy, là khá hiếm. Tôi đã xác định và cố gắng ít nhất bốn hình thức thiền khác nhau.
 
-Một tôi tìm thấy hoạt động tốt nhất cho tôi được gọi là Ý thức Không Chọn Lựa, hoặc Ý thức Không Phán Xét. Khi bạn đang đi về kinh doanh hàng ngày của bạn (hy vọng, có một số bản chất) và bạn không nói chuyện với bất kỳ ai khác, bạn thực hành học cách chấp nhận khoảnh khắc bạn đang ở mà không đưa ra đánh giá. Bạn không nghĩ, "Ồ, có một anh chàng vô gia cư ở đằng kia, tốt hơn là băng qua đường" hoặc 
+Một tôi tìm thấy hoạt động tốt nhất cho tôi được gọi là Ý thức Không Chọn Lựa, hoặc Ý thức Không Phán Xét. Khi bạn đang đi về kinh doanh hàng ngày của bạn (hy vọng, có một số bản chất) và bạn không nói chuyện với bất kỳ ai khác, bạn thực hành học cách chấp nhận khoảnh khắc bạn đang ở mà không đưa ra đánh giá. Bạn không nghĩ, "Ồ, có một anh chàng vô gia cư ở đằng kia, tốt hơn là băng qua đường" hoặc hoặc nhìn ai đó đang chạy ngang qua và nói, "Anh ta không cân đối, và tôi thì cân đối hơn anh ta."
+
+Nếu tôi thấy một anh chàng có một ngày tóc xấu, tôi sẽ đầu tiên nghĩ "Haha, anh ấy có một ngày tóc xấu." Chà, tại sao tôi lại cười nhạo anh ấy để làm cho tôi cảm thấy tốt hơn về bản thân? Và tại sao tôi đang cố gắng để làm cho tôi cảm thấy tốt hơn về mái tóc của riêng tôi? Bởi vì tôi đang rụng tóc, và tôi sợ nó sẽ biến mất. Những gì tôi thấy là 90 phần trăm suy nghĩ tôi có là dựa trên nỗi sợ hãi. 10 phần trăm khác có thể là dựa trên ham muốn.
+
+Bạn không đưa ra bất kỳ quyết định nào. Bạn không đánh giá bất cứ điều gì. Bạn chỉ chấp nhận mọi thứ. Nếu tôi làm điều đó trong mười hoặc mười lăm phút trong khi đi bộ xung quanh, tôi kết thúc trong một trạng thái rất thanh thản, biết ơn. Ý thức Không Chọn Lựa hoạt động tốt cho tôi. [6]
+
+Bạn cũng có thể thực hiện thiền siêu việt, đó là nơi bạn đang sử dụng tụng lặp đi lặp lại để tạo ra một tiếng ồn trắng trong đầu của bạn để chôn vùi suy nghĩ của bạn. Hoặc, bạn chỉ có thể rất say mê và rất cảnh giác nhận thức được những suy nghĩ của bạn khi chúng xảy ra. Khi bạn xem suy nghĩ của bạn, bạn nhận ra có bao nhiêu trong số chúng là dựa trên nỗi sợ hãi. Khoảnh khắc bạn nhận ra một nỗi sợ hãi, mà không cần thậm chí cố gắng nó biến mất. Sau một thời gian, tâm trí của bạn im lặng.
+
+Khi tâm trí của bạn im lặng, bạn ngừng lấy mọi thứ xung quanh bạn làm điều hiển nhiên. Bạn bắt đầu nhận thấy các chi tiết. Bạn nghĩ, "Wow, tôi sống ở một nơi xinh đẹp như vậy. Thật tuyệt vời mà tôi có quần áo, và tôi có thể đến Starbucks và mua một ly cà phê bất cứ lúc nào. Hãy nhìn vào những người này - mỗi người đều có một cuộc sống hoàn toàn hợp lệ và đầy đủ diễn ra trong đầu của riêng họ."
+
+Nó làm bật chúng ta ra khỏi câu chuyện chúng ta liên tục kể cho chính mình. Nếu bạn ngừng nói chuyện với bản thân mình trong thậm chí mười phút, nếu bạn ngừng
 
