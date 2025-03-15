@@ -1182,4 +1182,18 @@ Ham muốn là một hợp đồng bạn làm với chính mình để không h�
 
 ---
 
-**PHẦN 19: THẬT THÀ CHO
+**PHẦN 19: THẬT THÀ CHONH LỰA CHỌN CHĂM SÓC CHO BẢN THÂN**
+
+Ưu tiên số một của tôi trong cuộc sống, trên cả hạnh phúc của tôi, trên cả gia đình tôi, trên cả công việc của tôi, là sức khỏe của chính tôi. Nó bắt đầu với sức khỏe thể chất của tôi. Thứ hai, đó là sức khỏe tinh thần của tôi. Thứ ba, đó là sức khỏe tâm linh của tôi. Sau đó, đó là sức khỏe của gia đình tôi. Sau đó, đó là hạnh phúc của gia đình tôi. Sau đó, tôi có thể ra ngoài và làm bất cứ điều gì tôi cần làm với phần còn lại của thế giới. [4]
+
+Không có gì giống như một vấn đề sức khỏe để tăng cường quay số tương phản cho phần còn lại của cuộc sống.
+
+Thế giới hiện đại đánh lái chúng ta đi khỏi cách con người có nghĩa là để sống về phía nào?
+
+Có rất nhiều, rất nhiều thứ.
+
+Có một số về phía vật lý. Chúng ta có chế độ ăn uống chúng ta không tiến hóa để ăn. Một chế độ ăn uống chính xác có lẽ nên trông gần gũi hơn với một chế độ ăn kiêng paleo, chủ yếu ăn rau với một lượng nhỏ thịt và quả mọng.
+
+Về mặt tập thể dục, chúng ta có lẽ có nghĩa là chơi thay vì chạy trên máy chạy bộ. Chúng ta có lẽ tiến hóa để sử dụng tất cả năm giác quan của chúng ta ngang nhau trái ngược với việc ủng hộ vỏ não thị giác. Trong xã hội hiện đại, hầu hết tất cả các đầu vào và giao tiếp của chúng ta là trực quan. Chúng ta không có nghĩa là đi bộ trong giày. Rất nhiều vấn đề về lưng và chân đến từ giày. Chúng ta không có nghĩa là có quần áo giữ cho chúng ta ấm áp mọi lúc. Chúng ta có nghĩa là có một số phơi nhiễm lạnh. Nó khởi động hệ thống miễn dịch của bạn.
+
+Chúng ta không tiến hóa để sống trong một môi trường hoàn toàn vô trùng và sạch sẽ
