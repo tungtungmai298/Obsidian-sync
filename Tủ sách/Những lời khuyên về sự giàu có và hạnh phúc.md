@@ -355,7 +355,7 @@ Hầu hết mọi thứ trong nhà bạn, tại nơi làm việc của bạn và
 
 Vì vậy, công nghệ là tập hợp những thứ, như Alan Kay đã nói, chưa hoạt động tốt [sửa chữa: Danny Hillis]. Một khi một cái gì đó hoạt động, nó không còn là công nghệ nữa. Xã hội luôn muốn những thứ mới. Và nếu bạn muốn giàu có, bạn muốn tìm ra cái nào trong những thứ đó bạn có thể cung cấp cho xã hội mà nó chưa biết cách có được nhưng nó sẽ muốn và cung cấp nó là tự nhiên đối với bạn, trong bộ kỹ năng của bạn và trong khả năng của bạn.
 
-Sau đó, bạn phải tìm ra cách mở rộng quy mô nó bởi vì nếu bạn chỉ xây dựng một, thì điều đó không đủ. Bạn phải xây dựng hàng ngàn, hoặc hàng trăm ngàn, hoặc hàng triệu, hoặc hàng tỷ trong số đó để mọi người có thể có một. Steve Jobs (và nhóm của anh ấy, tất nhiên) đã tìm ra xã hội sẽ muốn điện thoại thông minh. Một máy tính trong túi của họ có tất cả khả năng điện thoại gấp một trăm lần và dễ sử dụng. Vì vậy, họ đã tìm ra cách xây dựng nó và sau đó họ đã tìm ra cách mở rộng quy mô nó. [78]
+Sau đó, bạn phải tìm ra cách mở rộng quy mô nó bởi vì nếu bạn chỉ xây dựng một, thì điều đó không đủ. Bạn phải xây dựng hàng ngàn, hoặc hàng trăm ngàn, hoặc hàng triệu, hoặc hàng tỷ trong số đó để mọi người có thể có một. Steve Jobs (và nhóm của anh ấy, tất nhiên) đã tìm ra xã hội sẽ muốn điện thoại thông minh. Một máy tính trong túi của họ có tất cả khả năng điện thoại gấp một trăm lần và dễ sử dụng. Vì vậy, họ đã tìm ra cách xây dựng nó và sau đó họ đã tìm ra cách mở rộng quy mô nó. 
 
 **CHƯƠNG 6: TÌM VÀ XÂY DỰNG KIẾN THỨC CỤ THỂ**
 
