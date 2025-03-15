@@ -588,4 +588,64 @@ Nó quy mô rất, rất tốt. Nếu bạn trở nên giỏi quản lý vốn, 
 
 Hình thức đòn bẩy cuối cùng là hoàn toàn mới — hình thức dân chủ nhất. Đó là: "các sản phẩm không có chi phí sao chép biên."
 
+**CHƯƠNG 11: TIẾP TỤC**
 
+Điều này bao gồm sách, phương tiện truyền thông, phim và mã. Mã có lẽ là hình thức đòn bẩy không cần sự cho phép mạnh mẽ nhất. Tất cả những gì bạn cần là một máy tính - bạn không cần sự cho phép của ai cả. [1]
+
+Quên giàu so với nghèo, nhân viên văn phòng so với công nhân. Bây giờ là có đòn bẩy so với không có đòn bẩy.
+
+Hình thức đòn bẩy thú vị nhất và quan trọng nhất là ý tưởng về các sản phẩm không có chi phí biên để sao chép. Đây là hình thức đòn bẩy mới. Điều này chỉ được phát minh trong vài trăm năm qua. Nó bắt đầu với máy in. Nó tăng tốc với phương tiện truyền thông phát sóng, và bây giờ nó thực sự đã bùng nổ với internet và với mã hóa. Bây giờ, bạn có thể nhân các nỗ lực của mình mà không cần liên quan đến những người khác và không cần tiền từ những người khác.
+
+Cuốn sách này là một hình thức đòn bẩy. Cách đây rất lâu, tôi đã phải ngồi trong một giảng đường và giảng bài cho mỗi bạn một cách cá nhân. Tôi có lẽ đã tiếp cận một vài trăm người và đó là tất cả. [78]
+
+Hình thức đòn bẩy mới nhất này là nơi tất cả các tài sản mới được tạo ra, tất cả các tỷ phú mới. Đối với thế hệ cuối cùng, tài sản đã được tạo ra bởi vốn. Những người đã tạo ra tài sản là Warren Buffetts của thế giới.
+
+Nhưng tài sản của thế hệ mới đều được tạo ra thông qua mã hoặc phương tiện truyền thông. Joe Rogan kiếm được 50 triệu đô la đến 100 triệu đô la một năm từ podcast của mình. Bạn sẽ có PewDiePie. Tôi không biết anh ấy đang kiếm được bao nhiêu tiền, nhưng anh ấy lớn hơn tin tức. Và tất nhiên, có Jeff Bezos, Mark Zuckerberg, Larry Page,
+
+Sergey Brin, Bill Gates và Steve Jobs. Sự giàu có của họ là tất cả đòn bẩy dựa trên mã. [78]
+
+Có lẽ điều thú vị nhất cần ghi nhớ về các hình thức đòn bẩy mới là chúng không cần sự cho phép. Chúng không yêu cầu sự cho phép của người khác để bạn sử dụng chúng hoặc thành công. Đối với đòn bẩy lao động, ai đó phải quyết định theo bạn. Đối với đòn bẩy vốn, ai đó phải cho bạn tiền để đầu tư hoặc biến thành một sản phẩm.
+
+Mã hóa, viết sách, ghi âm podcast, tweet, YouTube - những loại thứ này là không cần sự cho phép. Bạn không cần sự cho phép của ai cả để làm chúng, và đó là lý do tại sao chúng rất bình đẳng. Chúng là những bộ cân bằng lớn của đòn bẩy. [78] Mỗi nhà phát triển phần mềm tuyệt vời, ví dụ, bây giờ có một đội quân robot làm việc cho anh ta vào ban đêm trong khi anh ta hoặc cô ta ngủ, sau khi họ đã viết mã và nó đang quay đi. [78]
+
+Bạn sẽ không bao giờ giàu có khi cho thuê thời gian của bạn.
+
+Bất cứ khi nào bạn có thể trong cuộc sống, hãy tối ưu hóa cho sự độc lập hơn là trả tiền. Nếu bạn có sự độc lập và bạn chịu trách nhiệm về đầu ra của bạn, trái ngược với đầu vào của bạn - đó là giấc mơ. [10]
+
+Con người đã phát triển trong xã hội nơi không có đòn bẩy. Nếu tôi đang chặt gỗ hoặc mang nước cho bạn, bạn biết tám giờ bỏ ra sẽ bằng khoảng tám giờ đầu ra. Bây giờ chúng ta đã phát minh ra đòn bẩy — thông qua vốn, hợp tác, công nghệ, năng suất, tất cả những phương tiện này. Chúng ta đang sống trong một kỷ nguyên của đòn bẩy. Là một công nhân, bạn muốn được tận dụng càng nhiều càng tốt
+
+để bạn có tác động lớn mà không tốn nhiều thời gian hoặc nỗ lực thể chất.
+
+Một công nhân được tận dụng có thể vượt trội hơn một công nhân không có đòn bẩy bằng một yếu tố một ngàn hoặc mười ngàn. Với một công nhân được tận dụng, phán đoán quan trọng hơn nhiều so với thời gian họ bỏ ra hoặc họ làm việc chăm chỉ như thế nào.
+
+Hãy quên đi lập trình viên 10x. Lập trình viên 1.000x thực sự tồn tại, chúng ta chỉ không thừa nhận nó đầy đủ. Xem @ID_AA_Carmack, @notch, Satoshi Nakamoto, v.v.
+
+Ví dụ, một kỹ sư phần mềm giỏi, chỉ bằng cách viết một mẩu mã nhỏ phù hợp và tạo ra ứng dụng nhỏ phù hợp, có thể tạo ra nửa tỷ đô la giá trị cho một công ty. Nhưng mười kỹ sư làm việc chăm chỉ hơn gấp mười lần, chỉ vì họ chọn sai mô hình, sai sản phẩm, viết nó sai cách hoặc đặt trong vòng lặp lan truyền sai, về cơ bản đã lãng phí thời gian của họ. Đầu vào không phù hợp với đầu ra, đặc biệt là đối với công nhân được tận dụng.
+
+Những gì bạn muốn trong cuộc sống là kiểm soát thời gian của bạn. Bạn muốn tham gia vào một công việc được tận dụng nơi bạn kiểm soát thời gian của riêng bạn và bạn được theo dõi trên các đầu ra. Nếu bạn làm điều gì đó đáng kinh ngạc để di chuyển kim trên doanh nghiệp, họ phải trả tiền cho bạn. Đặc biệt nếu họ không biết làm thế nào bạn đã làm điều đó bởi vì nó bẩm sinh vào sự ám ảnh của bạn hoặc kỹ năng của bạn hoặc khả năng bẩm sinh của bạn, họ sẽ phải tiếp tục trả tiền cho bạn để làm điều đó.
+
+Nếu bạn có kiến thức cụ thể, bạn có trách nhiệm giải trình và bạn có đòn bẩy; họ phải trả cho bạn những gì bạn xứng đáng. Nếu
+
+họ trả cho bạn những gì bạn xứng đáng, thì bạn có thể lấy lại thời gian của mình — bạn có thể siêu hiệu quả. Bạn không thực hiện các cuộc họp vì lợi ích của các cuộc họp, bạn không cố gắng gây ấn tượng với người khác, bạn không viết những thứ xuống để làm cho nó trông như bạn đã làm việc. Tất cả bạn quan tâm là công việc thực tế.
+
+Khi bạn chỉ thực hiện công việc thực tế, bạn sẽ hiệu quả hơn nhiều, hiệu quả hơn nhiều. Bạn sẽ làm việc khi bạn cảm thấy như vậy — khi bạn có nhiều năng lượng — và bạn sẽ không cố gắng vật lộn khi bạn đang ở mức năng lượng thấp. Bạn sẽ lấy lại thời gian của mình.
+
+Tuần làm việc bốn mươi giờ là một di tích của Thời đại công nghiệp. Những người làm việc tri thức hoạt động như các vận động viên — tập luyện và chạy nước rút, sau đó nghỉ ngơi và đánh giá lại.
+
+Bán hàng là một ví dụ — đặc biệt là bán hàng cao cấp. Nếu bạn là một đại lý bất động sản ngoài đó bán nhà, nó không phải là một công việc tuyệt vời, cần thiết. Nó rất đông đúc. Nhưng nếu bạn là một đại lý bất động sản hàng đầu, bạn biết làm thế nào để tiếp thị bản thân và bạn biết làm thế nào để bán nhà, có thể bạn có thể bán biệt thự 5 triệu đô la trong một phần mười thời gian trong khi ai đó khác đang vật lộn để bán căn hộ hoặc chung cư 100.000 đô la. Đại lý bất động sản là một công việc có đầu vào và đầu ra bị ngắt kết nối.
+
+Xây dựng bất kỳ sản phẩm nào và bán bất kỳ sản phẩm nào phù hợp với mô tả này. Và về cơ bản, còn gì nữa? Nơi bạn không nhất thiết muốn là một vai trò hỗ trợ, như dịch vụ khách hàng. Trong dịch vụ khách hàng, thật không may, các đầu vào và đầu ra liên quan tương đối gần với nhau và số giờ bạn bỏ ra quan trọng. [10]
+
+Các công cụ và đòn bẩy tạo ra sự ngắt kết nối này giữa đầu vào và đầu ra. Thành phần sáng tạo của một nghề càng cao, thì càng có nhiều khả năng có đầu vào và đầu ra bị ngắt kết nối. Nếu bạn đang tìm kiếm các ngành nghề nơi đầu vào và đầu ra của bạn được kết nối cao, nó sẽ rất khó khăn để tạo ra sự giàu có và làm giàu cho bản thân trong quá trình đó. [78]
+
+Nếu bạn muốn là một phần của một công ty công nghệ tuyệt vời, thì bạn cần phải có thể BÁN hoặc XÂY DỰNG. Nếu bạn không làm một trong hai, hãy học.
+
+Học cách bán, học cách xây dựng. Nếu bạn có thể làm cả hai, bạn sẽ không thể ngăn cản.
+
+Đây là hai loại rất rộng. Một là xây dựng sản phẩm. Điều này là khó khăn, và nó là đa biến. Nó có thể bao gồm thiết kế; nó có thể bao gồm phát triển; nó có thể bao gồm sản xuất, hậu cần, mua sắm; và nó thậm chí có thể thiết kế và vận hành một dịch vụ. Nó có nhiều, nhiều định nghĩa.
+
+Nhưng trong mọi ngành, có một định nghĩa về người xây dựng. Trong ngành công nghiệp công nghệ của chúng tôi, đó là CTO, đó là lập trình viên, đó là kỹ sư phần mềm hoặc kỹ sư phần cứng. Nhưng ngay cả trong ngành giặt ủi, nó có thể là người đang xây dựng dịch vụ giặt ủi, người đang làm cho các chuyến tàu chạy đúng giờ, người đang đảm bảo tất cả quần áo kết thúc ở đúng nơi vào đúng thời điểm, v.v.
+
+Phía bên kia của nó là bán hàng. Một lần nữa, bán hàng có một định nghĩa rất rộng. Bán hàng không nhất thiết chỉ có nghĩa là bán cho
+
+khách hàng cá nhân, nhưng nó có thể có nghĩa là tiếp thị, nó có thể có nghĩa là
