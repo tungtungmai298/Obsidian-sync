@@ -1417,3 +1417,28 @@ Sức mạnh siêu phàm lớn nhất là khả năng thay đổi bản thân.
 
 Tôi đã tạo ra một lớp học sai lầm, tôi sẽ tóm tắt cùng một cách.
 
+Gần hết rồi bạn nhé! Khoảng 3 trang nữa là xong.
+
+Những sai lầm đã được rõ ràng chỉ trong hồi tưởng thông qua một bài tập, đó là tự hỏi bản thân: khi bạn ba mươi, lời khuyên bạn sẽ cung cấp cho bản thân hai mươi tuổi của bạn là gì? Và khi bạn bốn mươi, lời khuyên bạn sẽ cung cấp cho bản thân ba mươi tuổi của bạn là gì? (Có lẽ nếu bạn còn trẻ hơn, bạn có thể làm điều đó bằng mọi năm năm.) Ngồi xuống và nói, "Được rồi, 2007, tôi đã làm gì? Tôi đã cảm thấy thế nào? 2008, tôi đã làm gì? Tôi đã cảm thấy thế nào? 2009, tôi đã làm gì? Tôi đã cảm thấy thế nào?"
+
+Cuộc sống sẽ diễn ra theo cách nó sẽ diễn ra. Sẽ có một số tốt và một số xấu. Hầu hết trong số đó thực sự chỉ là tùy thuộc vào cách giải thích của bạn. Bạn được sinh ra, bạn có một tập hợp các trải nghiệm cảm giác, và sau đó bạn chết. Làm thế nào bạn chọn để giải thích những kinh nghiệm đó là tùy thuộc vào bạn, và những người khác nhau giải thích chúng theo những cách khác nhau.
+
+Thực sự, tôi ước tôi đã làm tất cả những điều tương tự, nhưng với ít cảm xúc hơn và ít tức giận hơn. Các ví dụ được kỷ niệm nhất sẽ là khi tôi còn trẻ hơn, tôi đã bắt đầu một công ty. Công ty này đã làm tốt, nhưng tôi đã không làm tốt, vì vậy tôi đã kiện một số người tham gia. Đó là một kết quả tốt cho tôi trong kết thúc, và mọi thứ đã hoạt động tốt, nhưng có rất nhiều angst và rất nhiều sự tức giận.
+
+Ngày nay, tôi sẽ không có sự lo lắng và sự tức giận. Tôi chỉ sẽ đi lên đến những người và nói, "Hãy nhìn, đây là những gì đã xảy ra. Đây là những gì tôi sẽ làm. Đây là cách tôi sẽ làm điều đó. Đây là những gì công bằng. Đây là những gì không."
+
+Tôi đã có бы thực hiện sự tức giận và những cảm xúc là một hậu quả rất lớn, hoàn toàn không cần thiết. Bây giờ, tôi đang cố gắng để học hỏi từ điều đó và làm những điều tương tự tôi nghĩ là những điều đúng đắn để làm nhưng không có sự tức giận và với một điểm rất dài hạn của
+
+quan điểm. Nếu bạn mất một quan điểm rất dài hạn và lấy cảm xúc ra khỏi nó, tôi sẽ không xem xét những sai lầm đó nữa. [4]
+
+Một lần nữa, thói quen là tất cả mọi thứ - tất cả mọi thứ chúng ta là. Chúng ta được đào tạo trong thói quen từ khi chúng ta còn là trẻ em, bao gồm cả việc đào tạo bô, khi nào khóc và khi nào không, làm thế nào để mỉm cười và khi nào không. Những thứ này trở thành thói quen — hành vi chúng ta học và tích hợp vào bản thân.
+
+Khi chúng ta già hơn, chúng ta là một bộ sưu tập của hàng ngàn thói quen liên tục chạy một cách tiềm thức. Chúng ta có một chút sức mạnh não thêm vào trong vỏ não mới của chúng ta để giải quyết các vấn đề mới. Bạn trở thành thói quen của bạn.
+
+Điều này đã đến ánh sáng cho tôi khi huấn luyện viên của tôi đã cho tôi một thói quen để làm mỗi ngày duy nhất. Tôi đã không bao giờ tập luyện mỗi ngày duy nhất trước đây. Đó là một tập luyện nhẹ. Nó không phải là khó khăn trên cơ thể của bạn, nhưng tôi đã làm tập luyện này mỗi ngày duy nhất. Tôi nhận ra sự chuyển đổi đáng kinh ngạc, đáng kinh ngạc nó đã có trên tôi cả về thể chất lẫn tinh thần.
+
+Để có sự bình yên trong tâm trí, bạn phải có hòa bình của cơ thể đầu tiên.
+
+Điều này đã dạy cho tôi sức mạnh của thói quen. Tôi bắt đầu nhận ra đó là tất cả về thói quen. Tại bất kỳ thời điểm nhất định, tôi hoặc đang cố gắng để nhặt một thói quen tốt hoặc loại bỏ một thói quen xấu trước đó. Phải mất thời gian.
+
+Nếu ai đó nói, "Tôi muốn được phù hợp, tôi muốn được khỏe mạnh. Ngay bây giờ, tôi không cân đối và tôi béo." Chà, không có gì bền vững sẽ làm việc cho bạn trong ba tháng. Nó sẽ là ít nhất
