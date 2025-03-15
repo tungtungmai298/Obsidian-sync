@@ -1585,5 +1585,3 @@ Trong quá trình này, chúng ta tăng tốc entropy toàn cầu cho đến khi
 Những gì chúng ta làm như các hệ thống sống tăng tốc nhận được trạng thái đó. Hệ thống phức tạp hơn bạn tạo ra, cho dù đó là thông qua máy tính, văn minh, nghệ thuật, toán học hoặc tạo ra một gia đình - bạn thực sự tăng tốc cái chết nhiệt của Vũ trụ. Bạn đang đẩy chúng ta hướng tới điểm này nơi chúng ta kết thúc như một điều.
 
 ---
-
-**CHƯƠNG 26: SỐNG BỞI
