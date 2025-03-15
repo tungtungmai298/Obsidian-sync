@@ -702,4 +702,75 @@ Chỉ từ việc tốt hơn một cách biên, như chạy một phần tư d�
 
 **CHƯƠNG 13: ƯU TIÊN VÀ TẬP TRUNG**
 
-Tôi đã gặp phải rất nhiều vận đen trên đường đi. Vận may nhỏ đầu tiên tôi kiếm được tôi đã mất ngay lập tức trên thị trường chứng khoán. Vận may nhỏ thứ hai tôi kiếm được, hoặc nên kiếm được, tôi về cơ bản
+Tôi đã gặp phải rất nhiều vận đen trên đường đi. Vận may nhỏ đầu tiên tôi kiếm được tôi đã mất ngay lập tức trên thị trường chứng khoán. Vận may nhỏ thứ hai tôi kiếm được, hoặc nên kiếm được, tôi về cơ bản đã bị lừa bởi các đối tác kinh doanh của tôi. Chỉ có lần thứ ba là một sự quyến rũ.
+
+Ngay cả sau đó, nó đã là một cuộc đấu tranh chậm rãi và ổn định. Tôi đã không kiếm được tiền trong cuộc đời mình trong một khoản thanh toán khổng lồ. Nó luôn là một loạt các điều nhỏ nhặt tích lũy. Nó là nhiều hơn về việc liên tục tạo ra sự giàu có bằng cách tạo ra các doanh nghiệp, tạo ra các cơ hội và tạo ra các khoản đầu tư. Nó đã không phải là một điều một lần khổng lồ. Sự giàu có cá nhân của tôi đã không được tạo ra bởi một năm lớn. Nó chỉ tích lũy một chút, một vài chip tại một thời điểm: nhiều lựa chọn hơn, nhiều doanh nghiệp hơn, nhiều khoản đầu tư hơn, nhiều thứ tôi có thể làm.
+
+Nhờ internet, cơ hội là rất phong phú. Trên thực tế, tôi có quá nhiều cách để kiếm tiền. Tôi không có đủ thời gian. Tôi thực sự có cơ hội tuôn ra khỏi tai tôi, và tôi tiếp tục hết thời gian. Có rất nhiều cách để tạo ra sự giàu có, để tạo ra sản phẩm, để tạo ra doanh nghiệp và để được xã hội trả tiền như một sản phẩm phụ. Tôi chỉ không thể xử lý tất cả chúng. [78]
+
+Đánh giá thời gian của bạn theo một tỷ lệ hàng giờ và chi tiêu tàn nhẫn để tiết kiệm thời gian ở tỷ lệ đó. Bạn sẽ không bao giờ có giá trị hơn những gì bạn nghĩ bạn xứng đáng.
+
+Không ai sẽ đánh giá bạn cao hơn bạn tự đánh giá. Bạn chỉ cần đặt ra một tỷ lệ hàng giờ cá nhân rất cao và bạn phải gắn bó với nó. Ngay cả khi tôi còn trẻ, tôi chỉ quyết định tôi có giá trị hơn nhiều so với thị trường nghĩ rằng tôi có giá trị và tôi bắt đầu đối xử với bản thân theo cách đó.
+
+Luôn luôn tính thời gian của bạn vào mọi quyết định. Mất bao nhiêu thời gian? Sẽ mất của bạn một giờ để đi qua thị trấn để có được một cái gì đó. Nếu bạn đánh giá bản thân với một trăm đô la một giờ, đó về cơ bản là ném một trăm đô la ra khỏi túi của bạn. Bạn sẽ làm điều đó chứ? [78]
+
+Nhanh chóng chuyển tiếp đến bản thân giàu có của bạn và chọn một tỷ lệ hàng giờ trung gian. Đối với tôi, tin hay không, khi bạn có thể đã thuê tôi... Mà bây giờ rõ ràng bạn không thể, nhưng khi bạn có thể đã thuê tôi... điều này là đúng một thập kỷ trước hoặc thậm chí hai thập kỷ trước, trước khi tôi có bất kỳ tiền thật nào. Tỷ lệ hàng giờ của tôi, tôi đã từng nói với bản thân hết lần này đến lần khác, là 5.000 đô la một giờ. Hôm nay khi tôi nhìn lại, thực sự nó là khoảng 1.000 đô la một giờ.
+
+Tất nhiên, tôi vẫn kết thúc làm những điều ngu ngốc như tranh cãi với thợ điện hoặc trả lại loa bị hỏng, nhưng tôi không nên có, và tôi đã làm ít hơn nhiều so với bất kỳ người bạn nào của tôi sẽ. Tôi sẽ làm một chương trình sân khấu ném một cái gì đó vào đống rác hoặc cho Quân đội Cứu rỗi hơn là cố gắng trả lại nó hoặc trao một cái gì đó cho mọi người hơn là cố gắng sửa nó.
+
+Tôi sẽ tranh cãi với bạn gái của mình, và thậm chí ngày nay đó là vợ tôi, "Tôi không làm điều đó. Đó không phải là một vấn đề mà tôi giải quyết." Tôi vẫn tranh cãi điều đó với mẹ tôi khi cô ấy đưa cho tôi những việc nhỏ để làm. Tôi chỉ không làm điều đó. Tôi thà thuê cho bạn một trợ lý. Điều này là đúng ngay cả khi tôi không có tiền. [78]
+
+Một cách khác để suy nghĩ về một cái gì đó là, nếu bạn có thể thuê ngoài một cái gì đó hoặc không làm một cái gì đó với giá ít hơn tỷ lệ hàng giờ của bạn, thuê ngoài nó hoặc không làm điều đó. Nếu bạn có thể thuê một ai đó để làm điều đó với giá ít hơn tỷ lệ hàng giờ của bạn, hãy thuê họ. Điều đó thậm chí bao gồm cả những thứ như nấu ăn. Bạn có thể muốn ăn những bữa ăn nấu tại nhà lành mạnh của bạn, nhưng nếu bạn có thể thuê ngoài nó, hãy làm điều đó thay vì. [78]
+
+Đặt ra một tỷ lệ đầy khát vọng rất cao cho bản thân và gắn bó với nó. Nó nên có vẻ và cảm thấy cao một cách vô lý. Nếu không, thì nó không đủ cao. Bất cứ điều gì bạn chọn, lời khuyên của tôi cho bạn sẽ là tăng nó. Như tôi đã nói, đối với bản thân, ngay cả trước khi tôi có tiền, trong một thời gian dài nhất tôi đã sử dụng 5.000 đô la một giờ. Và nếu bạn ngoại suy rằng ra những gì nó trông như một mức lương hàng năm, đó là nhiều triệu đô la mỗi năm.
+
+Trớ trêu thay, tôi thực sự nghĩ rằng tôi đã đánh bại nó. Tôi không phải là người làm việc chăm chỉ nhất - tôi thực sự là một người lười biếng. Tôi làm việc thông qua những đợt năng lượng nơi tôi thực sự có động lực với một cái gì đó. Nếu tôi thực sự xem xét có bao nhiêu tôi đã kiếm được cho mỗi giờ thực tế mà tôi đã bỏ ra, nó có lẽ cao hơn một chút so với điều đó. [78]
+
+Bạn có thể mở rộng về tuyên bố của bạn, "Nếu bạn bí mật coi thường sự giàu có, nó sẽ lẩn tránh bạn"?
+
+Nếu bạn đi vào một tư duy tương đối, bạn sẽ luôn ghét những người làm tốt hơn bạn, bạn sẽ luôn ghen tị hoặc ghen ghét họ. Họ sẽ cảm nhận những cảm xúc đó khi bạn cố gắng và kinh doanh với họ. Khi bạn cố gắng và kinh doanh với ai đó, nếu bạn có bất kỳ suy nghĩ xấu nào hoặc bất kỳ phán xét nào về họ, họ sẽ cảm thấy nó. Con người được kết nối để cảm nhận những gì người khác sâu thẳm bên trong cảm thấy. Bạn phải thoát khỏi một tư duy tương đối. [10]
+
+Theo nghĩa đen, chống lại sự giàu có sẽ ngăn bạn trở nên giàu có, bởi vì bạn sẽ không có tư duy đúng đắn cho nó, bạn sẽ không có tinh thần đúng đắn và bạn sẽ không giao dịch với mọi người ở cấp độ phù hợp. Hãy lạc quan, hãy tích cực. Điều đó quan trọng. Những người lạc quan thực sự làm tốt hơn về lâu dài. [10]
+
+Thế giới kinh doanh có nhiều người chơi các trò chơi tổng bằng không và một vài người chơi các trò chơi tổng dương tìm kiếm lẫn nhau trong đám đông.
+
+Về cơ bản có hai trò chơi lớn trong cuộc sống mà mọi người chơi. Một là trò chơi tiền bạc. Bởi vì tiền sẽ không giải quyết tất cả các vấn đề của bạn, nhưng nó sẽ giải quyết tất cả các vấn đề tiền bạc của bạn. Mọi người nhận ra điều đó, vì vậy họ muốn kiếm tiền.
+
+Nhưng đồng thời, nhiều người trong số họ, sâu thẳm bên trong, tin rằng họ không thể kiếm tiền. Họ không muốn bất kỳ sự tạo ra sự giàu có nào xảy ra. Vì vậy, họ tấn công toàn bộ doanh nghiệp bằng cách nói, "Chà, kiếm tiền là xấu xa. Bạn không nên làm điều đó."
+
+Nhưng họ thực sự đang chơi trò chơi khác, đó là trò chơi địa vị. Họ đang cố gắng để có địa vị cao trong mắt những người khác đang xem bằng cách nói, "Chà, tôi không cần tiền. Chúng tôi không muốn tiền." Địa vị là thứ hạng của bạn trong hệ thống phân cấp xã hội. [78]
+
+Tạo ra sự giàu có là một trò chơi tổng dương gần đây về mặt tiến hóa. Địa vị là một trò chơi tổng bằng không cũ. Những người tấn công việc tạo ra sự giàu có thường chỉ đang tìm kiếm địa vị.
+
+Địa vị là một trò chơi tổng bằng không. Đó là một trò chơi rất cũ. Chúng ta đã chơi nó kể từ các bộ tộc khỉ. Nó có tính階级性 cao. Ai là số một? Ai là số hai? Ai là số ba? Và để số ba di chuyển đến số hai, số hai phải di chuyển ra khỏi khe đó. Vì vậy, địa vị là một trò chơi tổng bằng không.
+
+Chính trị là một ví dụ về một trò chơi địa vị. Ngay cả thể thao cũng là một ví dụ về một trò chơi địa vị. Để là người chiến thắng, phải có một người thua cuộc. Tôi không yêu thích các trò chơi địa vị một cách cơ bản. Chúng đóng một vai trò quan trọng trong xã hội của chúng ta, vì vậy chúng ta có thể tìm ra ai đang phụ trách. Nhưng về cơ bản, bạn chơi chúng bởi vì chúng là một
+
+ác quỷ cần thiết. [78]
+
+Vấn đề là, để chiến thắng trong một trò chơi địa vị, bạn phải hạ bệ ai đó khác. Đó là lý do tại sao bạn nên tránh các trò chơi địa vị trong cuộc sống của bạn - chúng biến bạn thành một người tức giận, chiến đấu. Bạn luôn chiến đấu để hạ bệ người khác, để đưa bản thân và những người bạn thích lên.
+
+Các trò chơi địa vị luôn tồn tại. Không có cách nào xung quanh nó, nhưng nhận ra hầu hết thời gian, khi bạn đang cố gắng tạo ra sự giàu có và bạn đang bị tấn công bởi ai đó khác, họ đang cố gắng tăng địa vị của riêng họ với chi phí của bạn. Họ đang chơi một trò chơi khác. Và đó là một trò chơi tồi tệ hơn. Đó là một trò chơi tổng bằng không thay vì một trò chơi tổng dương. [78]
+
+Chơi các trò chơi ngu ngốc, giành được những giải thưởng ngu ngốc.
+
+Điều quan trọng nhất cần làm cho những người trẻ tuổi bắt đầu là gì?
+
+Dành nhiều thời gian hơn để đưa ra các quyết định lớn. Về cơ bản có ba quyết định thực sự lớn bạn đưa ra trong cuộc đời sớm của bạn: nơi bạn sống, bạn ở với ai và những gì bạn làm.
+
+Chúng ta dành rất ít thời gian để quyết định mối quan hệ nào để tham gia. Chúng ta dành rất nhiều thời gian trong một công việc, nhưng chúng ta dành rất ít
+
+thời gian quyết định công việc nào để tham gia. Chọn thành phố nào để sống có thể gần như hoàn toàn xác định quỹ đạo cuộc đời của bạn, nhưng chúng ta dành rất ít thời gian cố gắng để tìm ra thành phố nào để sống.
+
+Lời khuyên cho một kỹ sư trẻ xem xét chuyển đến San Francisco: "Bạn có muốn bỏ lại bạn bè của bạn không? Hoặc là người bị bỏ lại phía sau?"
+
+Nếu bạn sẽ sống ở một thành phố trong mười năm, nếu bạn sẽ ở trong một công việc trong năm năm, nếu bạn đang ở trong một mối quan hệ trong một thập kỷ, bạn nên dành một đến hai năm để quyết định những điều này. Đây là những quyết định có tính thống trị cao. Ba quyết định đó thực sự quan trọng.
+
+Bạn phải nói không với mọi thứ và giải phóng thời gian của bạn để bạn có thể giải quyết các vấn đề quan trọng. Ba vấn đề đó có lẽ là  
+ba vấn đề lớn nhất. [1]
+
+Bạn sẽ thực hiện một hoặc hai bước nào để bao quanh bản thân với những người thành công?
+
+Tìm ra những gì bạn giỏi và bắt đầu giúp đỡ những người khác với nó. Cho đi. Trả lại nó. Nghiệp hoạt động bởi vì mọi người là nhất quán. Trên một khung thời gian đủ dài, bạn sẽ thu hút những gì bạn dự án. Nhưng đừng đo lường - sự kiên nhẫn của bạn sẽ hết nếu bạn đếm. [7]
+
+Một ông chủ cũ đã từng cảnh báo: "Bạn sẽ không bao giờ giàu có vì bạn rõ ràng là thông minh, và ai đó sẽ luôn đề nghị bạn một công việc mà chỉ đủ tốt."
