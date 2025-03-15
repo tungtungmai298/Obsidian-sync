@@ -1285,3 +1285,5 @@ Bạn có thể làm điều đó chỉ bằng cách thở. Thở thư giãn nó
 
 Tôi không nói rằng bạn có thể đánh bại bất kỳ bệnh nào bạn chỉ vì bạn đã kích hoạt não sau của bạn. Nhưng bạn đang cống hiến hầu hết năng lượng thường cần thiết để chăm sóc về môi trường bên ngoài cho hệ thống miễn dịch.
 
+
+
