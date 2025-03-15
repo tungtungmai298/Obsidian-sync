@@ -15,8 +15,7 @@ nhiễu và phương pháp không hiệu quả.
 * Sử dụng tài khoản thử nghiệm để làm quen với sàn giao dịch.  
 * Tìm hiểu kỹ giao diện và thao tác trên sàn trước khi giao dịch thật.  
 * Hiểu rõ các giai đoạn học tập:  
-* Quá trình học trading gồm 4 giai đoạn: học hỏi, luyện tập, bắt đầu có kết  
-quả và trở thành chuyên gia.  
+* Quá trình học trading gồm 4 giai đoạn: học hỏi, luyện tập, bắt đầu có kết quả và trở thành chuyên gia.  
 * Giai đoạn đầu cho phép sai lầm và thử nghiệm để chọn lọc kiến thức tốt  
 nhất.  
 * Không nên nóng vội và tạo áp lực phải thành công sớm.  
@@ -35,5 +34,4 @@ vùng cung cầu.
 * Sửa các lỗi sai như vào lệnh theo cảm tính hoặc không đặt dừng lỗ.  
 * Luyện tập và sửa sai liên tục để tiến bộ hơn.  
   
-Học trading và đầu tư là một quá trình dài hơi, đòi hỏi sự kiên nhẫn, nỗ lực và  
-kiến thức bài bản.
+Học trading và đầu tư là một quá trình dài hơi, đòi hỏi sự kiên nhẫn, nỗ lực và kiến thức bài bản.
