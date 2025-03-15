@@ -1417,8 +1417,6 @@ Sức mạnh siêu phàm lớn nhất là khả năng thay đổi bản thân.
 
 Tôi đã tạo ra một lớp học sai lầm, tôi sẽ tóm tắt cùng một cách.
 
-Gần hết rồi bạn nhé! Khoảng 3 trang nữa là xong.
-
 Những sai lầm đã được rõ ràng chỉ trong hồi tưởng thông qua một bài tập, đó là tự hỏi bản thân: khi bạn ba mươi, lời khuyên bạn sẽ cung cấp cho bản thân hai mươi tuổi của bạn là gì? Và khi bạn bốn mươi, lời khuyên bạn sẽ cung cấp cho bản thân ba mươi tuổi của bạn là gì? (Có lẽ nếu bạn còn trẻ hơn, bạn có thể làm điều đó bằng mọi năm năm.) Ngồi xuống và nói, "Được rồi, 2007, tôi đã làm gì? Tôi đã cảm thấy thế nào? 2008, tôi đã làm gì? Tôi đã cảm thấy thế nào? 2009, tôi đã làm gì? Tôi đã cảm thấy thế nào?"
 
 Cuộc sống sẽ diễn ra theo cách nó sẽ diễn ra. Sẽ có một số tốt và một số xấu. Hầu hết trong số đó thực sự chỉ là tùy thuộc vào cách giải thích của bạn. Bạn được sinh ra, bạn có một tập hợp các trải nghiệm cảm giác, và sau đó bạn chết. Làm thế nào bạn chọn để giải thích những kinh nghiệm đó là tùy thuộc vào bạn, và những người khác nhau giải thích chúng theo những cách khác nhau.
