@@ -1381,5 +1381,5 @@ Nó gần như bạn đang lấy bản thân ra khỏi một khung nhất địn
 
 Phật tử nói về nhận thức so với bản ngã. Họ thực sự đang nói về làm thế nào bạn có thể nghĩ về bộ não của bạn, ý thức của bạn, như một cơ chế nhiều lớp. Có một lõi cơ sở, hệ điều hành cấp hạt nhân đang chạy. Sau đó, có những ứng dụng đang chạy trên đầu. (Tôi thích nghĩ về nó như máy tính và nói chuyện mọt sách.)
 
-Tôi thực sự đang quay trở lại mức độ nhận thức của tôi của
+Tôi thực sự đang quay trở lại mức độ nhận thức của tôi của 
 
