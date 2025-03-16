@@ -1,4 +1,3 @@
-Dựa trên nội dung từ trang bạn cung cấp, tôi đã hệ thống lại các sản phẩm của Vinamilk thành sơ đồ như sau:
 
 **Sản phẩm của Vinamilk:**
 1. **Sữa nước:**
