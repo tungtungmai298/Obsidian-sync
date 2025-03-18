@@ -1,7 +1,7 @@
 
 
 
-hãy giúp tôi viết ý tưởng kịch bản cho video ngắn với hình ảnh con mèo màu cam là nhân vật chính, bạn tự bổ sung thêm các nhân vật phụ(nếu cần thiết), kịch bản của video vui nhộn, có nhiều hơn 3 sự kiện xảy ra trong kịch
+hãy giúp tôi viết ý tưởng kịch bản cho video ngắn với hình ảnh con mèo màu cam là nhân vật chính, bạn tự bổ sung thêm các nhân vật phụ(nếu cần thiết), kịch bản của video vui nhộn, có nhiều hơn 3 sự kiện xảy ra trong video
 
 Từ ý tưởng trên, hãy triển khai cho tôi nội dung của kịch bản của video. Nội dung kịch bản cần chia ra làm nhiều cảnh  (bạn chỉ cần viết promt tạo ra hình ảnh, bạn KHÔNG cần tạo hình ảnh)
 
