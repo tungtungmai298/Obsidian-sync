@@ -1,6 +1,6 @@
 
 
-hãy giúp tôi viết promt xây dựng hình ảnh bằng ai cho hình ảnh con mèo màu cam. kịch bản của video vui nhộn,. 
+hãy giúp tôi viết promt xây dựng hình ảnh bằng ai cho hình ảnh con mèo màu cam. kịch bản của video vui nhộn. 
 
 hãy giúp tôi viết promt kịch bản cho video ngắn với hình ảnh con mèo màu cam là nhân vật chính, bạn tự bổ sung thêm các nhân vật phụ(nếu cần thiết), kịch bản của video vui nhộn,
 
