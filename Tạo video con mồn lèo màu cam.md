@@ -2,7 +2,7 @@
 
 
 hãy giúp tôi viết ý tưởng kịch bản cho video ngắn với hình ảnh con mèo màu cam là nhân vật chính, bạn tự bổ sung thêm các nhân vật phụ(nếu cần thiết), kịch bản của video vui nhộn, có nhiều hơn 4 sự kiện xảy ra trong video.
-Chú ý: nhân vật phụ cũng phải là động vật, không có sự hiện diện của co
+Chú ý: nhân vật phụ cũng phải là động vật, không có sự hiện diện của con người trong
 
 Từ ý tưởng trên, hãy triển khai cho tôi nội dung của kịch bản, chia ra làm các cảnh có trong video, tối thiểu là 5 cảnh (bạn có thể triển khai nhiều hơn nếu thấy cần thiết).
 
