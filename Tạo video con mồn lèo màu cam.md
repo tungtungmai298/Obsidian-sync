@@ -7,7 +7,7 @@ Chú ý: nhân vật phụ cũng phải là động vật, không có sự hiệ
 Từ ý tưởng trên, hãy triển khai cho tôi nội dung của kịch bản, chia ra làm các cảnh có trong video, tối thiểu là 5 cảnh. Hãy trình bày nội dung và âm thanh của từng cảnh.
 Chú ý: Mỗi cảnh chỉ nên xuất hiện 1 nhân vật, không nên xuất hiện quá nhiều nhân vật trong cùng 1 cảnh.
 
-hãy cho tôi promt để tôi yêu cầu midjouney tạo ảnh cho từng cảnh. Phải đồng nhất về mô tả hình ảnh con mèo qua các cảnh, để người xem hiểu là cùng là 1 con trong kịch bản chứ không phải là 2 con. Bạn KHÔNG cần tạo ảnh, chỉ cần viết câu lệnh cho tất cả các cảnh ở trên thôi. Hãy làm hết từng cảnh, giữ nguyên các từ khoá mô tả ngoại hình, thay đổi đối tượng tương tác qua từng cảnh. Bức ảnh chỉ cần đơn giản giống như được tạo ra bằng AI, không cần hoàn toàn tự nhiên. Tuy nhiên, nó vẫn là một bức ảnh thú vị và hài hước,
+hãy cho tôi promt để tôi yêu cầu midjouney tạo ảnh cho từng cảnh. Phải đồng nhất về mô tả hình ảnh con mèo qua các cảnh, để người xem hiểu là cùng là 1 con trong kịch bản chứ không phải là 2 con. Bạn KHÔNG cần tạo ảnh, chỉ cần viết câu lệnh cho tất cả các cảnh ở trên thôi nhưng va. Hãy làm hết từng cảnh, giữ nguyên các từ khoá mô tả ngoại hình, thay đổi đối tượng tương tác qua từng cảnh. Bức ảnh chỉ cần đơn giản giống như được tạo ra bằng AI, không cần hoàn toàn tự nhiên. Tuy nhiên, nó vẫn là một bức ảnh thú vị và hài hước,
 
 
 hãy giúp tôi viết promt xây dựng hình ảnh bằng ai cho hình ảnh con mèo màu cam. kịch bản của video vui nhộn
