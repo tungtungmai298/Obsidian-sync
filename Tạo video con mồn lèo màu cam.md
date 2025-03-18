@@ -5,7 +5,7 @@ hãy giúp tôi viết ý tưởng kịch bản cho video ngắn với hình ả
 Chú ý: nhân vật phụ cũng phải là động vật, không có sự hiện diện của con người trong video
 
 Từ ý tưởng trên, hãy triển khai cho tôi nội dung của kịch bản, chia ra làm các cảnh có trong video, tối thiểu là 5 cảnh 
-Chú ý: Mỗi cảnh chỉ nên xuất hiện 1 nhân vật, không nên xuất hiện quá nhiều nhân vật trong cùng 1 cản
+Chú ý: Mỗi cảnh chỉ nên xuất hiện 1 nhân vật, không nên xuất hiện quá nhiều nhân vật trong cùng 1 cảnh, v
 
 hãy cho tôi promt để tôi yêu cầu midjouney tạo ảnh cho từng cảnh. Phải đồng nhất về mô tả hình ảnh con mèo qua các cảnh, để người xem hiểu là cùng là 1 con trong kịch bản chứ không phải là 2 con. Bạn KHÔNG cần tạo ảnh, chỉ cần viết câu lệnh cho tất cả các cảnh ở trên thôi. Hãy làm hết từng cảnh, giữ nguyên các từ khoá mô tả ngoại hình, thay đổi đối tượng tương tác qua từng cảnh.
 
