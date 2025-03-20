@@ -1,4 +1,4 @@
-# Chi phí chạy quảng cáo Facebook là bao nhiêu? Cách tính đơn giản?
+
 
 ![Chi phí chạy quảng cáo Facebook là bao nhiêu? Cách tính đơn giản?](https://photo.salekit.com/uploads/fchat_5b4872d13803896dd77125af/chi-phi-chay-quang-cao-facebook-fchat-chatbot.jpg)
 
